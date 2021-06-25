@@ -5,6 +5,7 @@ title: My Brain's Backyard
 theme: papercss-hugo-theme
 googleAnalytics: UA-123
 disqusShortname: yourdisqusshortname
+enableEmoji: true
 
 privacy:
   disqus:

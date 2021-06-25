@@ -3,7 +3,6 @@ title: "About"
 date: 2021-06-25T18:01:56+05:30
 ---
 
-
 ## What should you expect from this blog?   
 
 {{<border>}}
@@ -14,7 +13,7 @@ I will be as true and raw as a teenager can possibly be. I hope you'll take this
 <!-- 
 How granular and detailed will my logs be? To be honest, I haven't figured it out but we will.     -->
 
-## Who am I?   
+## Who am I? :hamster:
 
 Hi there! 
 
@@ -63,7 +62,7 @@ This section is under construction.
 
 <!-- I like to look at a thing and ask questions which few others would ask.  -->
 
-## Music   
+## Music :notes:   
 <!-- 
 I like to listen to stuff which doesn't stick to my head and accompany me to examination halls(!). I think "Cocteau Twins" are the perfect band for me with their shimmering soundscapes and Liz's ethereal, indecipherable voice. Send me to an island with all the CT tracks and I'll live happily ever after. 
 
@@ -73,21 +72,21 @@ I like Led Zeppelin, U2, Adele among many others. Cocteau Twins deserve a mentio
 
 I have an ear for classical too. The usual lot of Beethoven, Chopin and Mozart among others. 
 
-## Reading  
+## Reading :books:
 
 I _love_ to read. I prefer non-fiction purely due to practical reasons but I appreciate good fiction too.   
 
-## Other things I love   
+## Other things I love :eyes: 
 
 I am learning the guitar. I want to play the keyboard and I would love to drum.   
 
 Paper folding and Electronics are few of my cherished hobbies. Talk reverse folds and 555 timers to me anytime :) 
 
-## Contact me  
+## Contact me :mailbox_with_mail: 
 
 Have a suggestion, idea or just wanna talk? Shoot me an email [here][5] and I'll be happy to chat back!  
 
-I hope you will enjoy your way around [here][0]!  
+I hope you will enjoy your way around [here][0]!  :smile: 
 
 <!-- ### The Attic   
 

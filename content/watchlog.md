@@ -11,9 +11,9 @@ I am a _big_ organization freak and turn insane easily if I find any part of my 
 **A Tiny Note:** _(xN)_ means I have watched that movie N times. This is not sufficient info, however, to conclude that I have liked that movie proportionately but it is true generally.  
 
 
-## The list   
+## :tv:   
 
-## 2020
+### 2020
 
 1. > **The Perks of Being a Wallflower (2012) _(x2)_**      
 This is one cheeky, moving and **relevant** coming-of-age movie that every teenager should watch atleast once. I am personally indebted to this movie for introducing me to the ethereal Cocteau Twins.   
@@ -149,7 +149,7 @@ I asked my pals for a comedy as I feared I was getting depressed (which in a sen
 
 <hr />
 
-## 2021  
+### 2021  
 
 1. > **Jojo Rabbit (2019) _(x1)_**    
 Now as I am writing this, I wonder why have I watched this only once?(!) It's a fantastic, modern satire on the outside with a warm, humane story at its core. Also, my introduction to the quirky Taika Waititi.   
