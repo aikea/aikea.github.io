@@ -342,6 +342,12 @@ A satisfying finale. A literal trip down memory lane well executed. Hard to see 
 Brilliant and fascinating. My first dip into anime psychological thriller courtesy a friend and I loved it!  
 (first watch: Jun 23rd, 2021)   
 
+51. > **Sherlock (Series)**  
+The BBC Production with Benedict Cumberbatch and Martin Freeman as Sherlock and Dr. Watson respectively. Watched seasons 1, 2 and 3.  
+
+52. > **Friends (Series)**  
+The sitcom. Watched seasons 1 and 2. This is fantastic material.  
+
 ## Closing thoughts   
 
 In any case, this is a curation of the movies I watched this year.     
