@@ -346,7 +346,11 @@ Brilliant and fascinating. My first dip into anime psychological thriller courte
 The BBC Production with Benedict Cumberbatch and Martin Freeman as Sherlock and Dr. Watson respectively. Watched seasons 1, 2 and 3.  
 
 52. > **Friends (Series)**  
-The sitcom. Watched seasons 1 and 2. This is fantastic material.  
+The sitcom. Watched seasons 1 and 2. This is fantastic material.   
+
+53. > **High Fidelity (2000) _(X1)_**   
+Informative. A look into how "modern relationships" work. But this was 21 years ago, so really not that modern, eh?    
+(first watch: Jun 29th, 2021)
 
 ## Closing thoughts   
 
