@@ -350,7 +350,16 @@ The sitcom. Watched seasons 1 and 2. This is fantastic material.
 
 53. > **High Fidelity (2000) _(X1)_**   
 Informative. A look into how "modern relationships" work. But this was 21 years ago, so really not that modern, eh?    
-(first watch: Jun 29th, 2021)
+(first watch: Jun 29th, 2021)    
+
+54. > **Your Name (2016) _(X2)_**   
+Wholesome romance / fantasy. And gosh, the details. Loved it.   
+(first watch: Jun 30th, 2021)   
+
+55. > **La La Land (2016) _(X1)_**    
+Beautiful story. Beautiful music. Perfect for late night Saturday watch.     
+(first watch: Jul 1st, 2021)    
+
 
 ## Closing thoughts   
 
