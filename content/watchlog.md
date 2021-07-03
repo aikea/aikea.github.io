@@ -368,14 +368,14 @@ In any case, this is a curation of the movies I watched this year.
 I would love to hear your thoughts, ideas or suggestions to add to this list! Or you have a similar list you wanna share? Feel free to shoot me an email.     
 
 [0]: /requiem-for-a-dream-a-melancholic-masterpiece
-[1]: /black-swan
-[2]: /marriage-story
-[3]: /12-monkeys
-[4]: /before-sunrise
-[5]: /before-sunset
-[6]: /the-breakfast-club
-[7]: /before-midnight
-[8]: /all-the-bright-places
-[9]: /pretty-in-pink
+[1]: /post/black-swan-2010
+[2]: /post/marriage-story
+[3]: /post/12-monkeys
+[4]: /post/before-sunrise
+[5]: /post/before-sunset
+[6]: /post/the-breakfast-club
+[7]: /post/before-midnight
+[8]: /post/all-the-bright-places
+[9]: /post/pretty-in-pink
 
 
