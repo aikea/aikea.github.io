@@ -1,5 +1,5 @@
 ---
-title: "Perfect Blue (1997)"
+title: "The Beauty and Horror of 'Perfect Blue'"
 date: 2021-06-26T11:40:05+05:30
 tags: [movie, thoughts, review, psychological thriller, anime]
 show_summary: false
