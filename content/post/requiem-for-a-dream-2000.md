@@ -1,6 +1,6 @@
 ---
-title: "Requiem For A Dream (2000)"
-tags: ['movies', 'drugs', 'desires', 'psychology']
+title: "Why 'Requiem For A Dream' is a melancholic masterpiece"
+tags: [movie, drugs, desires, psychology]
 date: 2020-10-30
 show_summary: false 
 ---

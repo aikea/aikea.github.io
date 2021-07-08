@@ -228,9 +228,13 @@ Beautiful story. Beautiful music. Perfect for late night Saturday watch.
 A must-watch for everyone.   
 (first watch: Jul 4th, 2021)    
 
-57. > **Dazed and Confused (19) | Richard Linklater**   
+57. > **Dazed and Confused (1993) | Richard Linklater** [more][10]   
 70s American teenager lifestyle. Realistic, unlike today's facade. :rolling_eyes:  
-(first watch: Jul 5th, 2021)
+(first watch: Jul 5th, 2021)  
+
+58. > **Making Dazed (2003?)**  
+A 45 minute documentary capturing the circumstances that led to and prevailed during the making of Dazed. Available on yt
+(first watch: Jul 8th, 2021)
 
 <hr />  
 
@@ -386,5 +390,5 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [7]: /before-midnight
 [8]: /all-the-bright-places
 [9]: /pretty-in-pink
-
+[10]: /movie-dazed-and-confused-1993
 

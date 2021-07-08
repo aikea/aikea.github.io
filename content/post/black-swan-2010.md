@@ -1,6 +1,6 @@
 ---
 title: "Black Swan (2010)"
-tags: ['movies']
+tags: ['movie', 'psychological thriller', 'identity']
 date: 2021-02-19
 show_summary: false
 ---
