@@ -1,46 +1,29 @@
-/* base */
-body {
-  background-image: url('/img/geometry2.png');
+p {
+  color: rgb(46, 45, 44)
 }
 
-/* anchors */
-a,
-a:visited {
-  color: rgb(0, 0, 238);
-  background-image: none;
-  text-decoration: underline;
-}
-
-/* navbar */
-nav a,
-nav a:visited {
-  color: #41403e;
-  text-decoration: none;
-}
-
-/* blockquote */
 blockquote {
-  font-style: italic;
+  color:rgb(63, 60, 59)
 }
 
-/* post list */
-.post-list {
-  font-size: 2em; 
-}
-.summary {
-  margin-bottom: 0.1em; 
+
+.text-primary {
+  color: purple;
 }
 
-/* post single */
-.post-title {
-  margin-bottom: 0.1em; 
+.text-secondary {
+  color: rgb(24, 24, 236)
 }
 
-/* toc */
-.toc {
-  padding: 1em;
-  margin-top: 1em;
+.text-success {
+  color: mediumseagreen;
 }
-.toc h2 {
-  font-size: 1.3em;
+
+.text-warning {
+  color: rgb(192, 192, 26);
 }
+
+.text-danger {
+  color: rgb(216, 14, 14);
+}
+
