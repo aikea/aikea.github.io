@@ -1,0 +1,29 @@
+p {
+  color: rgb(46, 45, 44)
+}
+
+blockquote {
+  color:rgb(63, 60, 59)
+}
+
+
+.text-primary {
+  color: purple;
+}
+
+.text-secondary {
+  color: rgb(24, 24, 236)
+}
+
+.text-success {
+  color: mediumseagreen;
+}
+
+.text-warning {
+  color: rgb(192, 192, 26);
+}
+
+.text-danger {
+  color: rgb(216, 14, 14);
+}
+

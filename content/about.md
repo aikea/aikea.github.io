@@ -1,6 +1,6 @@
 ---
 title: "About"
-date: 2021-06-25T18:01:56+05:30
+summary: 
 ---
 
 ## What should you expect from this blog?   
@@ -68,9 +68,9 @@ I like to listen to stuff which doesn't stick to my head and accompany me to exa
 
 Other interests include (but are not limited to) ABBA, Fleet Foxes, The Beatles and Beethoven.  -->
 
-I like Led Zeppelin, U2, Adele among many others. Cocteau Twins deserve a mention too. 
+I :yellow_heart: rock! Led Zeppelin, Nirvana, Beatles, Queen, U2, FW Mac, among _many_ others. 
 
-I have an ear for classical too. The usual lot of Beethoven, Chopin and Mozart among others. 
+I have an ear for classical and dreampop too. Cocteau Twins deserve a mention.  
 
 ## Reading :books:
 

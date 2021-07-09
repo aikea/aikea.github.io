@@ -1,0 +1,31 @@
+theme = "tale"
+title = "Backyard"
+googleAnalytics = ""
+disqusShortname = ""
+enableEmoji = "true"
+
+[Author]
+  name = "Basil"
+
+[menu]
+  [[menu.main]]
+    identifier = "posts"
+    name = "Posts"
+    title = "Posts"
+    url = "/"
+    weight = 1
+  [[menu.main]]
+  identifier = "watchlog"
+  name = "Watchlog"
+  title = "Watchlog"
+  url = "/watchlog/"
+  weight = 2
+  [[menu.main]]
+    identifier = "about"
+    name = "About"
+    title = "About"
+    url = "/about/"
+    weight = 3
+
+[Params]
+  css = ["css/custom.css"]

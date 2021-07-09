@@ -35,7 +35,7 @@ Randall 'Pink' Floyd, a promising footballer, is asked to sign a pledge barring 
 
 At one point, a kid says,   
 {{<background "primary">}}
-"If I ever start referring to these as the best years of my life, remind me to kill myself."
+> "If I ever start referring to these as the best years of my life, remind me to kill myself."
 {{</background>}}
 
 The fresh high school junior, Mitch Kramer's transformation overnight, from the timid geeky kid to smoking pot, destroying public property, making out with a senior girl. The uncertainty in his eyes when offered a ride by his seniors to coolly sliding in his headphones in his room at dawn after confronting his mother, his emotions are raw and true.   
@@ -43,7 +43,7 @@ The fresh high school junior, Mitch Kramer's transformation overnight, from the 
 Cynthia, Mike and Tony, the school's intelligentsia, throwing philosophies at each other after being frustrated at not finding a party in the neighborhood. Linklater grasps this opportunity:  
 
 {{<background "primary">}}
-"Life is preparation for death.... All we are taught to do is prepare.  
+> "Life is preparation for death.... All we are taught to do is prepare.  
 ...Since we'll be dying anyway, shouldn't we be enjoying ourselves now?"    
 {{</background>}}   
 
@@ -52,7 +52,7 @@ The nerd Tony, disciplined, eloquent and socially awkward. The blossoming romanc
 Matthew McCoughney's Wooderson, high on pot, tied the threads together succintly in his speech standing in the middle of the field at midnight: 
 
 {{<background "success">}}
-"...You gotta do what Randall "Pink" Floyd wants to do, man.  
+> "...You gotta do what Randall "Pink" Floyd wants to do, man.  
 Let me tell ya this.   
 The older you do get, the more rules they're gonna try to get you to follow.   
 You just gotta keep livin', man.   

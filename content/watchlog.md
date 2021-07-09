@@ -1,6 +1,6 @@
 ---
 title: "Watchlog"
-date: 2021-06-25T17:58:08+05:30
+summary: 
 ---
 
 Ok, I admit my defeat! Inspite of promising myself that I would focus solely on college exam preparation and academics in general, I have given into my temptation and desire. (When I now introspect, I realize I have wasted a lot of time doing everything except academics.)   
@@ -233,7 +233,7 @@ A must-watch for everyone.
 (first watch: Jul 5th, 2021)  
 
 58. > **Making Dazed (2003?)**  
-A 45 minute documentary capturing the circumstances that led to and prevailed during the making of Dazed. Available on yt
+A 45 minute documentary capturing the circumstances that led to and prevailed during the making of Dazed. Available on yt.   
 (first watch: Jul 8th, 2021)
 
 <hr />  
