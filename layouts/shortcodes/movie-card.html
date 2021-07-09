@@ -1,0 +1,54 @@
+<!-- with is great when the output depends on a parameter being set:
+
+{{ with .Get "class" }} class="{{ . }}"{{ end }} -->
+
+<!-- TODO: Add a serial number -->
+
+<div class="movie-card">
+  <!-- Title -->
+  <div class="title">
+  {{ if ( .Get "title")}}
+  {{ .Get "title" }}
+  {{ else }}
+  No title
+  {{ end }}
+  </div>
+
+  {{ if len .Inner | eq 2}}
+  <div class="info">
+  {{ else }}
+    <div class="info-padding-bottom-zero">
+  {{ end }}
+    {{ if (.Get "dir")}}
+    <span class="director">Director: {{ .Get "dir" }} | </span>
+    {{end}}
+    {{ with .Get "year"}}
+    <span class="year">Year: {{ . }}</span>
+    {{ else }}
+    {{ errorf "Missing year parameter in shortcode movie-card"}}
+    {{ end }}
+  </div>
+
+  {{ if len .Inner | eq 2}}
+  {{ else }}
+  <div class="tags">
+    {{ .Inner }}
+  </div>
+  {{ end }}
+  
+
+  {{ if ( .Get "text")}}
+  <p class="text">
+  {{ .Get "text" | emojify }}
+  </p>
+  {{ end }}
+
+  <div class="first-watched">
+    First watched: 
+    {{ if (.Get "date") }}
+    {{ .Get "date" }}
+    {{ else }}
+    Not known
+    {{ end }}
+  </div>
+</div>

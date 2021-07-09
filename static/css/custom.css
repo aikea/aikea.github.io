@@ -6,6 +6,51 @@ blockquote {
   color:rgb(63, 60, 59)
 }
 
+/* Movie Card  */
+.movie-card {
+  border: solid 1px darkgray;
+  margin: 25px;
+}
+
+.movie-card > .title {
+  padding: 1em;
+  font-size: larger;
+  background: linear-gradient(45deg, #e66465, #9198e5);
+  color: black;
+  font-family: Verdana, Geneva, Tahoma, sans-serif;
+}
+
+.movie-card > .tags {
+  font-size: smaller;
+  padding: 1em;
+}
+
+.movie-card > .info {
+  padding: 1em;
+  color: rgb(59, 56, 56);
+}
+
+.movie-card > .info-padding-bottom-zero {
+  padding: 1em;
+  color: rgb(59, 56, 56);
+  padding-bottom: 0%;
+}
+
+.movie-card > .text {
+  padding: 0.5em 1em 0em 1em;
+  background-color: rgb(238, 236, 236);
+}
+
+.movie-card > .first-watched {
+  padding-left: 1em;
+}
+
+
+/* End Movie Card */
+
+
+
+
 /* CSS For Color Shortcode */
 /* Colors were chosen willy-nilly */
 /* Feel free to change ;) */
