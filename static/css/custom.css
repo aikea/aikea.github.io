@@ -6,6 +6,9 @@ blockquote {
   color:rgb(63, 60, 59)
 }
 
+/* CSS For Color Shortcode */
+/* Colors were chosen willy-nilly */
+/* Feel free to change ;) */
 
 .text-primary {
   color: purple;
@@ -25,5 +28,41 @@ blockquote {
 
 .text-danger {
   color: rgb(216, 14, 14);
+}
+/* CSS For Color Shortcode ends */
+
+
+/* CSS For Badge Shortcode */
+.badge {
+  padding: 5px;
+  margin: 5px;
+  border-radius: 5px;
+}
+
+.primary {
+
+}
+
+.secondary {
+
+}
+
+.gradient {
+  background:  linear-gradient(45deg, blue, red);
+  color: white;
+}
+
+.success {
+  background-color: rgb(8, 240, 85);
+  color: black;
+}
+
+.warning {
+  background-color: rgb(248, 244, 4);
+}
+
+.danger {
+  background-color: rgb(224, 96, 11);
+  color: white;
 }
 
