@@ -2,7 +2,7 @@
 title: "How 'Dazed and Confused' captures the gore and glory of being a teenager"
 date: 2021-07-06T08:31:11+05:30
 tags: [movie, cult, classic, teenage, nostalgic]
-show_summary: false
+summary: 
 ---  
 
 
