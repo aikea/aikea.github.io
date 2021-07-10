@@ -6,6 +6,16 @@ blockquote {
   color:rgb(63, 60, 59)
 }
 
+/* Movie List */
+.movie-list-item {
+  list-style-type: none;
+}
+
+
+
+
+/* End Movie List */
+
 /* Movie Card  */
 .movie-card {
   border: solid 1px darkgray;
@@ -36,7 +46,7 @@ blockquote {
   padding-bottom: 0%;
 }
 
-.movie-card > .text {
+.movie-card > .content {
   padding: 0.5em 1em 0em 1em;
   background-color: rgb(238, 236, 236);
 }

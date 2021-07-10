@@ -7,45 +7,6 @@ Ok, I admit my defeat! Inspite of promising myself that I would focus solely on 
 
 I am a _big_ organization freak and turn insane easily if I find any part of my life going undocumented. (This is one of the _primary_ motivations for this blog.) So, without further ado, let's begin at the beginning.   
 
-{{<movie-card
-  title="Jojo Rabbit"
-  dir="Taika Waititi"
-  year="2019"
-  text="Now as I am writing this, I wonder why have I watched this only once?(!) It's a fantastic, modern satire on the outside with a warm, humane story at its core. Also, my introduction to the quirky Taika Waititi."
->}}
-{{</movie-card>}}
-
-{{<movie-card
-title="Terminator"
-dir="James Cameron"
-text="Loved it. And you do know how I absolutely crush on the 80s? Those were the times, ah."
-year="1984"
->}}
-{{</movie-card>}}
-
-{{<movie-card
-title="Terminator 2"
-year="1991"
-dir="James Cameron"
-text="Watched them both for the sheer cult status the Terminator series enjoy in the geek culture. Though, I may not watch the later ones. Besides, I believe Cameron sufficiently messes up the timeline by the end of T2. :man_shrugging:"
->}}
-{{</movie-card>}}
-
-{{<movie-card
-title="The White Tiger"
-year="2021"
-text="This was inevitable. After watching the trailer on YouTube, I grabbed the book by A. Adiga and then to catch this adaptation starring a fitting Adarsh Grover as Balram Halwai. And partially to drag my sister into atleast relishing this satire (she hates books)."
->}}
-{{</movie-card>}}
-
-
-{{<movie-card 
-  title="Perfect Blue" 
-  dir="Satoshi Kon" 
-  year="1993" 
-  text="Brilliant and fascinating. My first dip into anime psychological thriller courtesy a friend and I loved it!"
-  date="Jun 3rd, 2021">}}
-{{</movie-card>}}
 
 ## :tv:   
 
