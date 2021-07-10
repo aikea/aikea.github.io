@@ -8,9 +8,6 @@ Ok, I admit my defeat! Inspite of promising myself that I would focus solely on 
 I am a _big_ organization freak and turn insane easily if I find any part of my life going undocumented. (This is one of the _primary_ motivations for this blog.) So, without further ado, let's begin at the beginning.   
 
 
-**A Tiny Note:** _(xN)_ means I have watched that movie N times. This is not sufficient info, however, to conclude that I have liked that movie proportionately but it is true generally.  
-
-
 ## :tv:   
 
 ### 2021  
