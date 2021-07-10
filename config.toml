@@ -12,7 +12,7 @@ enableEmoji = "true"
     identifier = "posts"
     name = "Posts"
     title = "Posts"
-    url = "/"
+    url = "/post"
     weight = 1
   [[menu.main]]
   identifier = "watchlog"
