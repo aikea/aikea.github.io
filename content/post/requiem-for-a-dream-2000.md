@@ -5,7 +5,6 @@ date: 2020-10-30
 show_summary: false 
 ---
 
----
 
 {{<background "warning">}}
 Spoilers ahead. Of course.

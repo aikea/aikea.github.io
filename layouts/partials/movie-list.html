@@ -1,5 +1,5 @@
 <ul>
-  {{ range .Pages }}
+  {{ range sort .Pages ".Params.Date" "desc"}}
   <li class="movie-list-item">
    {{ partial "movie-card.html" .}}
   </li>
