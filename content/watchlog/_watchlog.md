@@ -233,6 +233,22 @@ A must-watch for everyone.
 A 45 minute documentary capturing the circumstances that led to and prevailed during the making of Dazed. Available on yt.   
 (first watch: Jul 8th, 2021)
 
+59. > **Titanic (1997) | James Cameron**  
+
+60. > **Top Gun**  
+
+61. > **Remember The Titans**  
+
+62. > **Baby Driver**  
+
+63. > **Life is Beautiful**  
+
+64. > **My Neighbor Toturo**  
+
+65. > **Crazy Stupid Love**  
+
+66. > **The Little Death**  
+
 <hr />  
 
 ### 2020

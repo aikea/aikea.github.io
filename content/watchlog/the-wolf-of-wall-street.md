@@ -1,5 +1,5 @@
 ---
-title: The Wold of Wall Street
+title: The Wolf of Wall Street
 dir: Martin Scorcese
 year: 2013
 date: 2021-03-12
