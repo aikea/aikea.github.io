@@ -37,7 +37,12 @@ The deaf Sam and the interpreter girl, Monica who works at Video Relay Service. 
 
 ## Favourite song  
 
-"The Air That I Breathe" by The Hollies is a classic so that checks out. But I really liked this new song called "Light" by Sleeping At Last. Holistic lyrics.  
+"The Air That I Breathe" by The Hollies is a classic so that checks out. But I really liked this new song called "Light" by Sleeping At Last. Sample this,  
+
+>  Though your heart is far too young to realize   
+The unimaginable light you hold inside   
+
+Wow.
 
 {{<youtube lJbscoDctuU>}}
 
