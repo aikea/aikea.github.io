@@ -25,7 +25,7 @@ blockquote {
 .movie-card > .title {
   padding: 1em;
   font-size: larger;
-  background: linear-gradient(45deg, #e66465, #9198e5);
+  background-color: gainsboro;
   color: black;
   font-family: Verdana, Geneva, Tahoma, sans-serif;
 }
