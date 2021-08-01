@@ -1,6 +1,5 @@
 theme = "tale2"
 title = "Backyard"
-googleAnalytics = ""
 disqusShortname = ""
 enableEmoji = "true"
 
@@ -29,3 +28,4 @@ enableEmoji = "true"
 
 [Params]
   css = ["css/custom.css"]
+  googleAnalyticsID = "G-0T4QTYWBYJ"
