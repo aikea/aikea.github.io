@@ -260,7 +260,11 @@ A 45 minute documentary capturing the circumstances that led to and prevailed du
 
 72. > **Trois Couleurs: Rogue**  
 
-73. > **Whiplash**  
+73. > **Whiplash | Damien Chazelle | 2014**   
+
+74. > **Good Will Hunting | Gus Van Sant | 1997**  
+
+75. > **Inside Job | Charles Ferguson | 2010**  
 
 <hr />  
 
