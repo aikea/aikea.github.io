@@ -268,6 +268,12 @@ A 45 minute documentary capturing the circumstances that led to and prevailed du
 
 76. > **No Strings Attached | Ivan Reitman | 2011**   
 
+77. > **The Shining | Stanley Kubrick | 1980**   
+
+78. > **Normal People (Series) | 2020**   
+A tale of modern love and complex relationship set in Ireland. I enjoyed the Irish accent, esp. Daisy Edgar-Jones; the way she says just about anything (!) Also, incredible soundtrack. Perfect to make you start crying.   
+
+
 <hr />  
 
 
