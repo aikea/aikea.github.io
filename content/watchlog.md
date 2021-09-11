@@ -271,8 +271,11 @@ A 45 minute documentary capturing the circumstances that led to and prevailed du
 77. > **The Shining | Stanley Kubrick | 1980**   
 
 78. > **Normal People (Series) | 2020**   
-A tale of modern love and complex relationship set in Ireland. I enjoyed the Irish accent, esp. Daisy Edgar-Jones; the way she says just about anything (!) Also, incredible soundtrack. Perfect to make you start crying.   
+A tale of modern love and complex relationship set in Ireland. I enjoyed the Irish accent, esp. Daisy Edgar-Jones; the way she says just about anything (!) Also, incredible soundtrack. Perfect to make you start crying.  
 
+79. > **Catch me if you can | Steven Spielberg | 2002**  
+A fraudster-agent chase captured in Spielberg style, witty, humorous. An  overconfident protagonist chased through the southern states by a heavily accented FBI agent. Based on a true story. Enjoyed it.    
+(first watch: Sep 8th, 2021)  
 
 <hr />  
 
