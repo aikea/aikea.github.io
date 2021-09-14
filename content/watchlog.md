@@ -277,6 +277,11 @@ A tale of modern love and complex relationship set in Ireland. I enjoyed the Iri
 A fraudster-agent chase captured in Spielberg style, witty, humorous. An  overconfident protagonist chased through the southern states by a heavily accented FBI agent. Based on a true story. Enjoyed it.    
 (first watch: Sep 8th, 2021)  
 
+80. > **Clueless | Amy Heckerling | 1995**   
+Almost a "Mean Girls" but slightly better. But, Alicia Silvestone. Oh. My. Fucking. God.  
+(first watch: Sep 13, 2021)  
+
+
 <hr />  
 
 
