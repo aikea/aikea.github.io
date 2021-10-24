@@ -278,9 +278,18 @@ A fraudster-agent chase captured in Spielberg style, witty, humorous. An  overco
 (first watch: Sep 8th, 2021)  
 
 80. > **Clueless | Amy Heckerling | 1995**   
-Almost a "Mean Girls" but slightly better. But, Alicia Silvestone. Oh. My. Fucking. God.  
+Almost a "Mean Girls" just slightly better. But, Alicia Silverstone. Oh. My. Fucking. God.  
 (first watch: Sep 13, 2021)  
 
+81. > **Friends | Season 3**  
+
+82. > **Akira | Katshuri Otomo | (1988)**   
+
+83. > **It's such a beautiful day | Don Hertzfeldt | (2012)**  
+(first watch: Oct 24, 2021)  
+
+84. > **Modern Times | Charlie Chaplin | (1936)**  
+(first watch: Oct 24, 2021)  
 
 <hr />  
 
