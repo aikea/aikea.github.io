@@ -283,13 +283,23 @@ Almost a "Mean Girls" just slightly better. But, Alicia Silverstone. Oh. My. Fuc
 
 81. > **Friends | Season 3**  
 
-82. > **Akira | Katshuri Otomo | (1988)**   
+82. > **Akira | Katshuri Otomo | (1988)**  
+Perhaps, my favourite anime movie of all times. I wanted something cyberpunk noir-ish and this was right there.  
 
 83. > **It's such a beautiful day | Don Hertzfeldt | (2012)**  
+The ending is the best. Also, a new form of storytelling. Sparked my curiosity.  
 (first watch: Oct 24, 2021)  
 
-84. > **Modern Times | Charlie Chaplin | (1936)**  
+84. > **Modern Times | Charlie Chaplin | (1936)**     
+Classic things from classic people.    
 (first watch: Oct 24, 2021)  
+
+85. > **Squid Games (2021) | Series**    
+A study of raw human nature.   
+
+86. > **5 Centimeters per second | Makoto Shinkai | (2007)**   
+All the colors. Wow.    
+(first watch: Nov 4th, 2021)
 
 <hr />  
 
