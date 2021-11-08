@@ -301,6 +301,15 @@ A study of raw human nature.
 All the colors. Wow.    
 (first watch: Nov 4th, 2021)
 
+87. > **Black Panther | Ryan Coogler | (2018)**  
+I have a crush on Luipta Nyong'o now. Typical MCU. 
+(first watch: Nov 6th, 2021)  
+
+88. > **Dune | Denis Villenueve | (2021)**  
+Huh. Should I read the book now?   
+(first watch: Nov, 7th, 2021)
+
+
 <hr />  
 
 
