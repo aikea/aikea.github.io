@@ -307,7 +307,15 @@ I have a crush on Luipta Nyong'o now. Typical MCU.
 
 88. > **Dune | Denis Villenueve | (2021)**  
 Huh. Should I read the book now?   
-(first watch: Nov, 7th, 2021)
+(first watch: Nov 7th, 2021)
+
+89. > **Venom | Ruben Fleischer | (2018)**  
+Meh.
+(first watch: Nov 10th, 2021) 
+
+90. > **Ghost in the Shell | Mamuro Oshii | (1995)**
+A neo-noir cyberpunk thriller. Also has a sequel.
+(first watch: Nov 14, 2021)  
 
 
 <hr />  
