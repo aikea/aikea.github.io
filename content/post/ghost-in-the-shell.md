@@ -6,7 +6,6 @@ tags:
 summary: 
 ---
 
-
 Identity of Major Kusunagi unclear. Unclear her origins. Whether human at some point in past or not. All we have are very few dialogues. 
 
 

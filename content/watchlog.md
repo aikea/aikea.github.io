@@ -198,7 +198,7 @@ Insomnia. I have no idea what I am doing. It's 2:45 in the AM. Weird movie. All 
 A satisfying finale. A literal trip down memory lane well executed. Hard to see why this won't turn any Avengers fan giddy. I liked it.  
 (first watch: Jun 9th, 2021)    
 
-50. > **Perfect Blue (1997) _(X2)_**  {{<badge "success">}}Favourite{{</badge>}}   
+50. > **Perfect Blue (1997) _(X2)_**  
 Brilliant and fascinating. My first dip into anime psychological thriller courtesy a friend and I loved it!  
 (first watch: Jun 23rd, 2021)   
 
@@ -316,6 +316,10 @@ Meh.
 90. > **Ghost in the Shell | Mamuro Oshii | (1995)**
 A neo-noir cyberpunk thriller. Also has a sequel.
 (first watch: Nov 14, 2021)  
+
+91. > **No Country for Old Men | Ethan and Joel Coen | (2007)**  
+Wild, vast, beautiful American landscapes. Heavy Texan accent. Horrible English with no regards to grammar. Numbingly terrifying and suspenseful. Brilliant writing. Amazing acting.  
+(first watch: Nov 16, 2021)    
 
 
 <hr />  
