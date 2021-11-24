@@ -313,13 +313,24 @@ Huh. Should I read the book now?
 Meh.
 (first watch: Nov 10th, 2021) 
 
-90. > **Ghost in the Shell | Mamuro Oshii | (1995)**
+90. > **Ghost in the Shell | Mamuro Oshii | (1995)**   
 A neo-noir cyberpunk thriller. Also has a sequel.
 (first watch: Nov 14, 2021)  
 
 91. > **No Country for Old Men | Ethan and Joel Coen | (2007)**  
 Wild, vast, beautiful American landscapes. Heavy Texan accent. Horrible English with no regards to grammar. Numbingly terrifying and suspenseful. Brilliant writing. Amazing acting.  
 (first watch: Nov 16, 2021)    
+
+92. > **Paprika | Tinto Brass | 1991**   
+Before you raise your eyebrows, let me inform you there was a mixup. I intended to watch Parika (2006), the Satoshi Kon sci-fi epic. I ended up with filthy Italian porn. Terrible acting. Fake orgasms (ugh). Jittery editing. Clumsy plot. Traumatised for life.  
+(first watch: I don't wanna remember)   
+
+93. > **Shang Chi and The Legend of The Ten Rings | Destin Daniel Cretton | 2021**  
+Typical Marvel. Never disappoints and never surprises.  
+(first watch: Nov 20, 2021)   
+
+94. > **Paris, Texas | Wim Wenders | 1984**  
+Woah.
 
 
 <hr />  

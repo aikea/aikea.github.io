@@ -23,8 +23,6 @@ I am a boy. I am a non-conformist, open source enthusiast, avid reader, origamis
 
 In other news, I am a student too.  
 
-## Maxims of my life
-
 <!-- * I learn anything and everything I find interesting. I like challenges, academic or otherwise. 
 
 * Insults and abuses don't offend me because they are transient. But ignorance and conceit does.   
@@ -52,11 +50,6 @@ No one could possibly have put it more eloquently.
 * I **can't stand** injustice and hypocrisy. -->
 <!-- 
 I **can't stand** injustice and hypocrisy. I feel quite strongly for institutions and systems that most of us have grown up with.     -->
-
-{{<background "danger">}}
-This section is under construction.
-{{</background>}}
-
 <!-- 
 * I am a perceptive person. I love to experiment with things (even if they are completely outside my domain) and make mistakes. -->
 
@@ -68,13 +61,11 @@ I like to listen to stuff which doesn't stick to my head and accompany me to exa
 
 Other interests include (but are not limited to) ABBA, Fleet Foxes, The Beatles and Beethoven.  -->
 
-I :yellow_heart: rock! Led Zeppelin, Nirvana, Beatles, Queen, U2, FW Mac, among _many_ others. 
-
-I have an ear for classical and dreampop too. Cocteau Twins deserve a mention.  
+I appreciate everything from Baroque symphonies to Green Day. My go-to genre would be rock though I strongly suspect this will change soon. Dvorak, Tchaikovsky, Mahler, Brahms (though not fully). Beatles (of course), Led Zeppelin, Radiohead, Beach House, U2, and all these great modern artists. I :yellow_heart: rock! Planning to explore Jazz and Blues in the future. 
 
 ## Reading :books:
 
-I _love_ to read. I prefer non-fiction purely due to practical reasons but I appreciate good fiction too.   
+I _love_ to read. I prefer non-fiction but I appreciate good fiction too.   
 
 ## Other things I love :eyes: 
 
