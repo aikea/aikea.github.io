@@ -330,8 +330,15 @@ Typical Marvel. Never disappoints and never surprises.
 (first watch: Nov 20, 2021)   
 
 94. > **Paris, Texas | Wim Wenders | 1984**  
-Woah.
+Woah.   
 
+95. > **Summer of '42 | Robert Mulligan | 1971**  
+Deep. Not what I expected it or wanted it to be.  
+(first watch: I have no idea)  
+
+96. > **The Grand Budapest Hotel | Wes Anderson | 2014**     
+Beautiful settings. Memorable characters. Humorous. Commendable screenplay and cinematography. Introduction to Wes Anderson and not disappointed.   
+(first watch: Dec 5th, 2021)
 
 <hr />  
 
