@@ -340,6 +340,10 @@ Deep. Not what I expected it or wanted it to be.
 Beautiful settings. Memorable characters. Humorous. Commendable screenplay and cinematography. Introduction to Wes Anderson and not disappointed.   
 (first watch: Dec 5th, 2021)
 
+97. > **The Dreamers | Bernando Bertolucci | 2003**   
+“A poem is a petition and a petition is a poem”. I have so many questions. A new dimension of French cinema, artistry, and culture has opened for me to explore. And so many pop references. And Paris. And cinema. And sensuality. And Mao. And violence. And Isabelle. I need a lot of answers. Incredible movie. Definitely revisitable.   
+(first watch: Dec 10th, 2021)    
+
 <hr />  
 
 
