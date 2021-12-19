@@ -344,6 +344,10 @@ Beautiful settings. Memorable characters. Humorous. Commendable screenplay and c
 “A poem is a petition and a petition is a poem”. I have so many questions. A new dimension of French cinema, artistry, and culture has opened for me to explore. And so many pop references. And Paris. And cinema. And sensuality. And Mao. And violence. And Isabelle. I need a lot of answers. Incredible movie. Definitely revisitable.   
 (first watch: Dec 10th, 2021)    
 
+98. > **Enter the Void | Gaspar Noe | 2009**   
+Neon colors, epileptic lights, sounds, typography, Tokyo, sex, more sex, floating objects, love, information overload. Experimental form of storytelling. Not very profound or deep because it tangles the viewer in its own plots and subplots but revisitable. Also, 161 mins running time so watch at 1.25X or more if you're restless like me.   
+(first watch: Dec 18th, 2021)    
+
 <hr />  
 
 
