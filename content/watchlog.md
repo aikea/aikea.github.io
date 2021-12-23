@@ -348,6 +348,14 @@ Beautiful settings. Memorable characters. Humorous. Commendable screenplay and c
 Neon colors, epileptic lights, sounds, typography, Tokyo, sex, more sex, floating objects, love, information overload. Experimental form of storytelling. Not very profound or deep because it tangles the viewer in its own plots and subplots but revisitable. Also, 161 mins running time so watch at 1.25X or more if you're restless like me.   
 (first watch: Dec 18th, 2021)    
 
+99. > **Jannat | Kunal Deshmukh | 2008**   
+I'm sorry this is even on this list. The music is epic, however.   
+(first watch: Dec 23rd, 2021)   
+
+100. > **The Sky is Pink | Sonali Bose | 2019**   
+Cool movie. Innovative. Refreshing. Found myself laughing real hard.   
+(first watch: Dec 23rd, 2021)   
+
 <hr />  
 
 
