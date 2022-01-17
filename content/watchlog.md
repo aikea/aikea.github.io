@@ -14,7 +14,15 @@ I am a _big_ organization freak and turn insane easily if I find any part of my 
 
 1. > **Frances Ha | Noam Baumbach | 2012**  
 Just the kind of movie you want to begin your year with. An innocent, "undateable" Frances, an indescribable friendship, artist's apartment in New York :heart:, "All I have to show are my mistakes", and Frances' expectation out of a relationship monologue. I loved every aspect of it, really.   
-(first watch: Jan 10th, 2021)   
+(first watch: Jan 10th, 2022)   
+
+2. > **Edge of Tomorrow | Doug Liman | 2014**  
+Post midnight movie with friends in the hostel. Interesting premise but solely for entertainment.  
+(first watch: Jan 16th 2022)  
+
+3. > **Her | Spike Jonze | 2013**   
+Explores the extremes of what it means to love someone. Asks interesting questions. Brilliant cinematography and incredible performances by Joaquin Phoenix and Scarlet Johannson. Didn't disappoint. Found myself drawing haunting similarities with my life.   
+(first watch: Jan 18th 2022)    
 
 
 <hr />  
