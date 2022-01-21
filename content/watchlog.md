@@ -22,7 +22,14 @@ Post midnight movie with friends in the hostel. Interesting premise but solely f
 
 3. > **Her | Spike Jonze | 2013**   
 Explores the extremes of what it means to love someone. Asks interesting questions. Brilliant cinematography and incredible performances by Joaquin Phoenix and Scarlet Johannson. Didn't disappoint. Found myself drawing haunting similarities with my life.   
-(first watch: Jan 18th 2022)    
+(first watch: Jan 18th, 2022)    
+
+4. > ***Friends | Season 10**   
+All I can say is "Wow". It has been an epic journey full of love and laughter. I learned so much and found so much. It has been an incredible experience.   
+
+5. > **Gladiator | Ridley Scott | 2000**   
+Story of sacrifices, gallantry, bravery, and courage. Signature Ridley Scott. Majestic soundtrack by Hans Zimmer and co. Incredible performance by Russell Crowe. Thought I could pause midway but it was too riveting. Watched till 6 in the morning.  
+(first watch: Jan 21st, 2021)     
 
 
 <hr />  
