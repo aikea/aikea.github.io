@@ -29,8 +29,14 @@ All I can say is "Wow". It has been an epic journey full of love and laughter. I
 
 5. > **Gladiator | Ridley Scott | 2000**   
 Story of sacrifices, gallantry, bravery, and courage. Signature Ridley Scott. Majestic soundtrack by Hans Zimmer and co. Incredible performance by Russell Crowe. Thought I could pause midway but it was too riveting. Watched till 6 in the morning.  
-(first watch: Jan 21st, 2021)     
+(first watch: Jan 21st, 2022)     
 
+6. > **Sex Education | Season 01 | 2021**   
+Netflix production. Is it only me or does Emma Mackey has an uncanny resemblance to Margot Robbie? Anyway, I liked how teenage school dramas are becoming more inclusive. Good selection of songs, and pop culture refs. And now, I have made a sizeable addition to my British vocabulary :P.   
+
+7. > **Paprika | Satoshi Kon | 2006**   
+It's obvious that I'm a fan of Satoshi Kon's works. I should have watched this waaay before but anyway. Recommended by a friend. I want to expand my cinematic knowledge to other cultures. BTW, there's a [2021 documentary][13] commemorating Kon's works. Yaaay!   
+(first watch: Jan 22nd 2022)    
 
 <hr />  
 
@@ -55,3 +61,4 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [10]: /movie-dazed-and-confused-1993
 [11]: /wl/2020
 [12]: /wl/2021
+[13]: https://en.wikipedia.org/wiki/Satoshi_Kon:_The_Illusionist
