@@ -36,7 +36,12 @@ Netflix production. Is it only me or does Emma Mackey has an uncanny resemblance
 
 7. > **Paprika | Satoshi Kon | 2006**   
 It's obvious that I'm a fan of Satoshi Kon's works. I should have watched this waaay before but anyway. Recommended by a friend. I want to expand my cinematic knowledge to other cultures. BTW, there's a [2021 documentary][13] commemorating Kon's works. Yaaay!   
+PS: OMG, Susumu Hirasawa's OST is so addicting!   
 (first watch: Jan 22nd 2022)    
+
+8. > **Life in a Day | Ridley Scott and Kevin McDonald | 2010**  
+Part of a course assignment but really heart-touching movie. People were asked to record a day of their lives in 2010 to record for posterity what it felt like to be alive in 2010. Found it slightly voyeuristic which is part of the appeal I guess. Novel idea. They also did 2020. It hits different the second time you watch it.   
+(first watch: Jan 23rd, 2022)  
 
 <hr />  
 
@@ -59,6 +64,6 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [8]: /all-the-bright-places
 [9]: /pretty-in-pink
 [10]: /movie-dazed-and-confused-1993
-[11]: /wl/2020
-[12]: /wl/2021
+[11]: /wl/2020/
+[12]: /wl/2021/
 [13]: https://en.wikipedia.org/wiki/Satoshi_Kon:_The_Illusionist
