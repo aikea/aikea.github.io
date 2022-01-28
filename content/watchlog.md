@@ -43,6 +43,13 @@ PS: OMG, Susumu Hirasawa's OST is so addicting!
 Part of a course assignment but really heart-touching movie. People were asked to record a day of their lives in 2010 to record for posterity what it felt like to be alive in 2010. Found it slightly voyeuristic which is part of the appeal I guess. Novel idea. They also did 2020. It hits different the second time you watch it.   
 (first watch: Jan 23rd, 2022)  
 
+9. > **Special Ops | Season 1**   
+Watched with wingmates in hostel. Entertaining.   
+
+10. > **Sex Education | Season 02 | 2021**   
+It is what it says on the tin but in a manner that is appealing to today's teenagers. It breaks the tradition, cliched (and cringed?) pedagogy of sex education and educates us subtly while concealing behind a teenage drama. Impressive and ingenious. Looking forward to season 3.     
+
+
 <hr />  
 
 
