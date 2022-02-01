@@ -47,7 +47,12 @@ Part of a course assignment but really heart-touching movie. People were asked t
 Watched with wingmates in hostel. Entertaining.   
 
 10. > **Sex Education | Season 02 | 2021**   
-It is what it says on the tin but in a manner that is appealing to today's teenagers. It breaks the tradition, cliched (and cringed?) pedagogy of sex education and educates us subtly while concealing behind a teenage drama. Impressive and ingenious. Looking forward to season 3.     
+It is what it says on the tin but in a manner that is appealing to today's teenagers. It breaks the tradition, cliched (and cringed?) pedagogy of sex education and educates us subtly while concealing behind a teenage drama. Impressive and ingenious. Looking forward to season 3.   
+
+11. > **Won't you be my neighbor | Morgan Neville | 2018**   
+_"Always know that you're loved and are capable of loving"_. I really needed to hear that right now. This is a documentary about Fred Rogers, a minister-to-be from Pittsburg, who by a turn of events got into television which was booming in the 60s. He wrote, produced, and directed _"Mr. Rogers' Neighborhood_", a TV program directed at young children. Mr. Rogers' incredible understanding of child psychology coupled with his minsiterial training allowed him to present really sensitive issues like death, validation, and even divorce to young children. I really, really enjoyed getting to know this ambitious and noble man.    
+PS: This was on my list for a very long time.     
+(first watch: Feb 1st, 2022)   
 
 
 <hr />  
