@@ -54,6 +54,10 @@ _"Always know that you're loved and are capable of loving"_. I really needed to 
 PS: This was on my list for a very long time.     
 (first watch: Feb 1st, 2022)   
 
+12. > **Paris vu par (Six in Paris) | 1965**   
+I have taken to French cinema lately and it has been a rewarding experience so far. The movie at hand is an amalgamation of six different stories directed by six different directors, all capturing the spirit of the beautiful city of Paris. Stories of love, deceit, drama, humor, and even death. The plots are varied and wholesome. Worth rewatching just for the Parisian shots and the language. :heart:    
+(first watch: Feb 3rd, 2022)    
+
 
 <hr />  
 
