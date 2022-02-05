@@ -58,6 +58,10 @@ PS: This was on my list for a very long time.
 I have taken to French cinema lately and it has been a rewarding experience so far. The movie at hand is an amalgamation of six different stories directed by six different directors, all capturing the spirit of the beautiful city of Paris. Stories of love, deceit, drama, humor, and even death. The plots are varied and wholesome. Worth rewatching just for the Parisian shots and the language. :heart:    
 (first watch: Feb 3rd, 2022)    
 
+13. > **Friends: The Reunion | 2021**  
+It was everything I expected it to be and more. It was hilarious to know these funny, little trivia and BTSs. And nostalgic, of course.    
+(first watch: Feb 5th, 2022)    
+
 
 <hr />  
 
