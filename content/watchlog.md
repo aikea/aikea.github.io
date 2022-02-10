@@ -66,6 +66,10 @@ It was everything I expected it to be and more. It was hilarious to know these f
 A tale of unbridled passion on the part of an ultra-rich minister coerces him to lose everything he had. Frankly, the plot was too single dimensional and lacking dynamics. Watched it only for Jeremy Irons and Juliette Binoche :heart:.   
 (first watch: Feb 10, 2022)   
  
+15. > **Sex Education | Season 03 | 2021**   
+Highly entertaining and thoughtful. Felt like a drag at places. But it ended on another cliffhanger :/   
+
+
 <hr />  
 
 
