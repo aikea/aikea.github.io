@@ -62,7 +62,10 @@ I have taken to French cinema lately and it has been a rewarding experience so f
 It was everything I expected it to be and more. It was hilarious to know these funny, little trivia and BTSs. And nostalgic, of course.    
 (first watch: Feb 5th, 2022)    
 
-
+14. > **Damage | Louis Malle | 1992**   
+A tale of unbridled passion on the part of an ultra-rich minister coerces him to lose everything he had. Frankly, the plot was too single dimensional and lacking dynamics. Watched it only for Jeremy Irons and Juliette Binoche :heart:.   
+(first watch: Feb 10, 2022)   
+ 
 <hr />  
 
 
