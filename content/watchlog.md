@@ -69,6 +69,9 @@ A tale of unbridled passion on the part of an ultra-rich minister coerces him to
 15. > **Sex Education | Season 03 | 2021**   
 Highly entertaining and thoughtful. Felt like a drag at places. But it ended on another cliffhanger :/   
 
+16. > **Deep Throat | Gerard Damiano | 1972**   
+My eyes. My eyes! MY EYES!! What a terrible day to have eyes.     
+(first watch: Feb 16, 2022)
 
 <hr />  
 
