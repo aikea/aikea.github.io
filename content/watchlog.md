@@ -73,6 +73,10 @@ Highly entertaining and thoughtful. Felt like a drag at places. But it ended on 
 My eyes. My eyes! MY EYES!! What a terrible day to have eyes.     
 (first watch: Feb 16, 2022)
 
+17. > **The Worst Person in the World | Joachim Trier | 2021**   
+Stunning Norway! Each frame is so well-crafted. And then, the superb writing and the performances by Renate Reinsve and Anders Danielsen. Had a great time.   
+(first watch: Feb 18th, 2022)    
+
 <hr />  
 
 
