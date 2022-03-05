@@ -78,8 +78,13 @@ Stunning Norway! Each frame is so well-crafted. And then, the superb writing and
 (first watch: Feb 18th, 2022)    
 
 18. > **Endless Love | Shana Feste | 2014**   
-I think I just needed some pre-majors cinmeatic recharge and this movie fitted the bill perfectly. No excessive mental overhead, no complex characters to analyse, or exceptional plots. The kind of romantic mushy love-found-lost-found teenage love story that makes you excessively giddy. Yeah, cute story.        
+I think I just needed some pre-majors cinematic recharge and this movie fitted the bill perfectly. No excessive mental overhead, no complex characters to analyse, or exceptional plots. The kind of romantic mushy love-found-lost-found teenage love story that makes you excessively giddy. Yeah, cute story.        
 (first watch: Mar 3rd, 2022)    
+
+19. > **A Walk to Remember | Adam Shankman | 2002**   
+Just timepass.   
+Okay. I _need_ to diversify my list!   
+(first watch: Mar 5th, 2022)     
 
 <hr />  
 
