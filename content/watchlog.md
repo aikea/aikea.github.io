@@ -86,6 +86,10 @@ Just timepass.
 Okay. I _need_ to diversify my list!   
 (first watch: Mar 5th, 2022)     
 
+20. > **Licorice Pizza | Paul Thomas Anderson | 2021**    
+LP is a coming-of-age love story set in the 80s. It chronicles the ups and downs in the relationship of a 25yr old girl with a 15yr old boy and follows both as they seek out their meaning and place in life, the boy involved in petty teenage activities while the girl matured and more pragmatic in her approach to life. Their huge age difference formed a major factor as to how they approached their relationship and most of the movie revolved how they "worked it out". Relatively sparse, quirky events, and a tad bit long, I felt it was a movie designed to pass time.   
+(first watch: Mar 12th, 2022)   
+
 <hr />  
 
 
