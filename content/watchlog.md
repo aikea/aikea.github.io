@@ -90,6 +90,10 @@ Okay. I _need_ to diversify my list!
 LP is a coming-of-age love story set in the 80s. It chronicles the ups and downs in the relationship of a 25yr old girl with a 15yr old boy and follows both as they seek out their meaning and place in life, the boy involved in petty teenage activities while the girl matured and more pragmatic in her approach to life. Their huge age difference formed a major factor as to how they approached their relationship and most of the movie revolved how they "worked it out". Relatively sparse, quirky events, and a tad bit long, I felt it was a movie designed to pass time.   
 (first watch: Mar 12th, 2022)   
 
+21. > **Spider Man: No Way Home | Jon Watts | 2021**  
+Great post-production. Storyline sets the backdrop for Multiverse of Madness. Digged the action sequences.  
+(first watch: Mar 28th, 2022)   
+
 <hr />  
 
 
