@@ -94,6 +94,10 @@ LP is a coming-of-age love story set in the 80s. It chronicles the ups and downs
 Great post-production. Storyline sets the backdrop for Multiverse of Madness. Digged the action sequences.  
 (first watch: Mar 28th, 2022)   
 
+22. > **In The Mood For Love | Wong Kar-Wai | 2000**   
+After I finished the movie, I had this intense want to re-watch the movie again. It's that good. Great story, brilliant cinematography, acting op, soundtrack. I think it all fits in quite well.   
+(first watch: Mar 30th, 2022)
+
 <hr />  
 
 
