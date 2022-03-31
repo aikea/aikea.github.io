@@ -98,6 +98,10 @@ Great post-production. Storyline sets the backdrop for Multiverse of Madness. Di
 After I finished the movie, I had this intense want to re-watch the movie again. It's that good. Great story, brilliant cinematography, acting op, soundtrack. I think it all fits in quite well.   
 (first watch: Mar 30th, 2022)
 
+23. > **Chungking Express | Wong Kar-Wai | 1994**   
+Someone rightfully said on an online review that "You will like Chungking Express if you like films." Loved the cinematography especially those artsy shots. Also, the soundtrack is nice.    
+(first watch: Mar 31, 2021)   
+
 <hr />  
 
 
