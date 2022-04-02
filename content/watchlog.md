@@ -102,6 +102,10 @@ After I finished the movie, I had this intense want to re-watch the movie again.
 Someone rightfully said on an online review that "You will like Chungking Express if you like films." Loved the cinematography especially those artsy shots. Also, the soundtrack is nice.    
 (first watch: Mar 31, 2021)   
 
+24. > **Sen Yasamaya Bak (In Good Hands) | Ketche | 2022**   
+I guess this was my first exploration of Turkish cinema. Okay.
+(first watch: Apr 2nd, 2022)   
+
 <hr />  
 
 
