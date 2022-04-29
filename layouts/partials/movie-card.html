@@ -31,7 +31,9 @@
   </div>
 
   <div class="info">
-    <span class="director">Director: {{ .Params.Dir }} | </span>  
+    {{ with .Params.Dir }}
+    <span class="director">Director: {{ . }} | </span>  
+    {{ end }}
     {{ with .Params.Year }}
     <span class="year">Year: {{ . }}</span>
     {{ else }}
@@ -40,6 +42,9 @@
       {{ errorf "Missing year parameter in shortcode movie-card"}}
       
       */}}
+    {{ end }}
+    {{ with .Params.Type }}
+    | Type: {{ . }}
     {{ end }}
   </div>
 
