@@ -110,6 +110,9 @@ I guess this was my first exploration of Turkish cinema. Okay.
 Yet another Fincher classic. Suspenseful right from the first shot up until the end. Leaves the viewer pondering, with that lingering aftertaste of an incomplete, yet perfectly told story. Much to be learned from Fincher.
 (first watch: Apr 14th, 2022)
 
+26. > **Fargo | Coen Brothers | 1996**
+Fargo is an Oscar-winning "comedy crime thriller". Directed by the brilliant Coen brothers, it's a fictional story of a inept car sales manager who pays a couple of henchmen to kidnap his wife in order to exhort money from his miser father-in-law. However, things go awry and end up pretty badly for everyone. Superb storytelling, that Minnesota accent, the stark white settings, and _Mike Yanagita_ makes this a movie truly deserving of being included in many "Best movies of all times" lists. There are also subtle many subtle references to Alfred Htitchcock and Stanley Kubrick among others.  
+(first watch: Apr 30th, 2022)
 
 <hr />
 
