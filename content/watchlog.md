@@ -111,8 +111,12 @@ Yet another Fincher classic. Suspenseful right from the first shot up until the 
 (first watch: Apr 14th, 2022)
 
 26. > **Fargo | Coen Brothers | 1996**
-Fargo is an Oscar-winning "comedy crime thriller". Directed by the brilliant Coen brothers, it's a fictional story of a inept car sales manager who pays a couple of henchmen to kidnap his wife in order to exhort money from his miser father-in-law. However, things go awry and end up pretty badly for everyone. Superb storytelling, that Minnesota accent, the stark white settings, and _Mike Yanagita_ makes this a movie truly deserving of being included in many "Best movies of all times" lists. There are also subtle many subtle references to Alfred Htitchcock and Stanley Kubrick among others.  
+Fargo is an Oscar-winning "comedy crime thriller". Directed by the brilliant Coen brothers, it's a fictional story of a inept car sales manager who pays a couple of henchmen to kidnap his wife in order to exhort money from his miser father-in-law. However, things go awry and end up pretty badly for everyone. Superb storytelling, that Minnesota accent, the stark white settings, and _Mike Yanagita_ makes this a movie truly deserving of being included in many "Best movies of all times" lists. There are also subtle many subtle references to Alfred Htitchcock and Stanley Kubrick among others.
 (first watch: Apr 30th, 2022)
+
+27. > **Lady Bird | Greta Gerwig | 2017**
+Funny, balanced, mature. The story of this typical teenager girl from Sacramento who pushes through a financially unsound household, relationship, college, and just existence in general. Enjoyed it.
+(first watch: May 2nd, 2022)
 
 <hr />
 
