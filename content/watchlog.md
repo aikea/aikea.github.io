@@ -118,6 +118,10 @@ Fargo is an Oscar-winning "comedy crime thriller". Directed by the brilliant Coe
 Funny, balanced, mature. The story of this typical teenager girl from Sacramento who pushes through a financially unsound household, relationship, college, and just existence in general. Enjoyed it.
 (first watch: May 2nd, 2022)
 
+28. > **Skyfall | Sam Mendes | 2012**     
+Typical James Bond movie. Post-minor fallout.   
+(first watch: May 13, 2022)
+
 <hr />
 
 
