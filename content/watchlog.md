@@ -118,9 +118,18 @@ Fargo is an Oscar-winning "comedy crime thriller". Directed by the brilliant Coe
 Funny, balanced, mature. The story of this typical teenager girl from Sacramento who pushes through a financially unsound household, relationship, college, and just existence in general. Enjoyed it.
 (first watch: May 2nd, 2022)
 
-28. > **Skyfall | Sam Mendes | 2012**     
-Typical James Bond movie. Post-minor fallout.   
+28. > **Skyfall | Sam Mendes | 2012**
+Typical James Bond movie. Post-minor fallout.
 (first watch: May 13, 2022)
+
+29. > **Everything Everywhere All At Once | Kwan and Scheinert | 2022**
+Nice concept but I think badly executed. Sick editing and mind-boggling cinematography.
+(first watch: May 19th, 2022)
+
+30. > **Harry Potter and The Sorcerer's Stone | Chris Columbus | 2001**
+Yes, this is the first time I watched this (stop with the shocked looks already, okay!). I was really meant to read first but time scarcity. Hence.
+I really enjoyed the Diagon Alley vibes. Been going through some shit myself and needed somewhere to escape. This perfectly fitted the bill. And then, Emma Watson :purple_heart:
+(first watch: May 20th, 2022)
 
 <hr />
 
