@@ -131,6 +131,10 @@ Yes, this is the first time I watched this (stop with the shocked looks already,
 I really enjoyed the Diagon Alley vibes. Been going through some shit myself and needed somewhere to escape. This perfectly fitted the bill. And then, Emma Watson :purple_heart:
 (first watch: May 20th, 2022)
 
+31. > **One Day | Lone Scherfig | 2011**
+Had to force myself to stop so I could finish the book first. But worth every bit of it. Anna Hathaway in one of her fine performances. And loved that cockney accent.  
+(first watch: Jun 02, 2022)
+
 <hr />
 
 
