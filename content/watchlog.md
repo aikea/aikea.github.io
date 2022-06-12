@@ -132,8 +132,15 @@ I really enjoyed the Diagon Alley vibes. Been going through some shit myself and
 (first watch: May 20th, 2022)
 
 31. > **One Day | Lone Scherfig | 2011**
-Had to force myself to stop so I could finish the book first. But worth every bit of it. Anna Hathaway in one of her fine performances. And loved that cockney accent.  
+Had to force myself to stop so I could finish the book first. But worth every bit of it. Anna Hathaway in one of her fine performances. And loved that cockney accent.
 (first watch: Jun 02, 2022)
+
+32. > **Breathless | Jean-Luc Godard | 1960**
+Hm, what's such a big deal? Oh. Wait. Wow, WTF, this is genius!     
+(first watch: Jun 07, 2022)
+
+33. > **Millennium Actress | Satoshi Kon | 2001**
+Holy cow! I want to kick myself for delaying this gem of a movie for _this_ long. In this movie, Kon tells a romance story in his style, bringing together drama, love, poignance, piquing our interest, keeping us arrested in the disorienting whirlwind that is his _modus operandi_. There is chaos and yet, it doesn't feel chaotic. The blurry line between reality and imagination is a recurring theme in all of Kon's works and in this, it outshines. As Chiyoko remarks at the end, “After all, what I really love is the pursuit of him”, we are forced to rethink the basis of our affection. (first watch: Jun 12, 2022)
 
 <hr />
 
