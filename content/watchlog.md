@@ -136,11 +136,15 @@ Had to force myself to stop so I could finish the book first. But worth every bi
 (first watch: Jun 02, 2022)
 
 32. > **Breathless | Jean-Luc Godard | 1960**
-Hm, what's such a big deal? Oh. Wait. Wow, WTF, this is genius!     
+Hm, what's such a big deal? Oh. Wait. Wow, WTF, this is genius!
 (first watch: Jun 07, 2022)
 
 33. > **Millennium Actress | Satoshi Kon | 2001**
 Holy cow! I want to kick myself for delaying this gem of a movie for _this_ long. In this movie, Kon tells a romance story in his style, bringing together drama, love, poignance, piquing our interest, keeping us arrested in the disorienting whirlwind that is his _modus operandi_. There is chaos and yet, it doesn't feel chaotic. The blurry line between reality and imagination is a recurring theme in all of Kon's works and in this, it outshines. As Chiyoko remarks at the end, “After all, what I really love is the pursuit of him”, we are forced to rethink the basis of our affection. (first watch: Jun 12, 2022)
+
+34. > **The Platform | Galder Gaztelu-Urrutia | 2019**
+A deeply metaphorical, introspective study of capitalism, exisiting societal structures, and the human nature. Has a quasi religious undertone to it. Intriguing and a good watch.    
+(first watch: Jun 20, 20222)
 
 <hr />
 
