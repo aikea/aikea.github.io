@@ -143,8 +143,12 @@ Hm, what's such a big deal? Oh. Wait. Wow, WTF, this is genius!
 Holy cow! I want to kick myself for delaying this gem of a movie for _this_ long. In this movie, Kon tells a romance story in his style, bringing together drama, love, poignance, piquing our interest, keeping us arrested in the disorienting whirlwind that is his _modus operandi_. There is chaos and yet, it doesn't feel chaotic. The blurry line between reality and imagination is a recurring theme in all of Kon's works and in this, it outshines. As Chiyoko remarks at the end, “After all, what I really love is the pursuit of him”, we are forced to rethink the basis of our affection. (first watch: Jun 12, 2022)
 
 34. > **The Platform | Galder Gaztelu-Urrutia | 2019**
-A deeply metaphorical, introspective study of capitalism, exisiting societal structures, and the human nature. Has a quasi religious undertone to it. Intriguing and a good watch.    
+A deeply metaphorical, introspective study of capitalism, exisiting societal structures, and the human nature. Has a quasi religious undertone to it. Intriguing and a good watch.
 (first watch: Jun 20, 20222)
+
+35. > **Badlands | Terence Mallick | 1973**
+A beautiful film from start to finish. From the writing down to each individual shot, it exudes a sense of artistic appreciation in the executor. Paced and balanced story, had a tough time deciphering the Southern accent (lol), nice soundtrack, great dialogues. Overall, ~justified of being in Ebert's Best Movies list~ a good watch.
+(first watch: Jun 23, 2022)
 
 <hr />
 
