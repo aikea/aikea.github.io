@@ -150,6 +150,15 @@ A deeply metaphorical, introspective study of capitalism, exisiting societal str
 A beautiful film from start to finish. From the writing down to each individual shot, it exudes a sense of artistic appreciation in the executor. Paced and balanced story, had a tough time deciphering the Southern accent (lol), nice soundtrack, great dialogues. Overall, ~justified of being in Ebert's Best Movies list~ a good watch.
 (first watch: Jun 23, 2022)
 
+36. > **Scott Pilgrim vs the World | Edgar Wright | 2010**
+How do I even begin to describe this cherry of a movie? Imagine someone mixed video games, rock music, and a love story together. The plot, the execution, the brilliant cinematography, the creative editing (which I highly approve of), this movie speaks for something beyond its age. It's a weird movie, no doubt. But in a good way. And that is the best kind of weird, really.
+So, the story follows this skinny Canadian boy called Scott Pilgrim who's reeling from past breakup and own problems when he meets Ramona Flowers, an American hipster and instantly falls in love with her. But he must defeat every member of the League of Evil Exes to get to be with her. It's the kind of boy-meet-girl, fall-in-love, can't-be-together, fight-against-all-odds, now-together, happy ending, reimagined.
+And, the characters OMG! (And Mary Elizabeth's Ramona is so hot (LOL))
+PS: There are seven of Ramona's exes.
+PPS: Every teenager should watch this movie atleast once!
+PPPS: And why only teenagers? (OK, I'm too excited but it's a good movie, I can't help it. Ok, bye)
+(first watch: Jun 26, 2022)
+
 <hr />
 
 
