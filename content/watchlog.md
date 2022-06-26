@@ -159,6 +159,10 @@ PPS: Every teenager should watch this movie atleast once!
 PPPS: And why only teenagers? (OK, I'm too excited but it's a good movie, I can't help it. Ok, bye)
 (first watch: Jun 26, 2022)
 
+37. > **Heat | Micheal Mann | 1995**
+Set in LA, _Heat_ is the classic police-and-theif chase story with a heart. Follows Neil McCauley (Robert de Niro) as he crafts master plans to rob banks, and execute dissidents, manage a personal life, etc. with Vincent Hanna (Al Pacino), a LAPD Homicide officer on his tail. It's a great movie on so many levels. Great writing, cinematography, acting. It managed to keep me at the edge of my seat till 3:30 AM (LOL). Great movie for a Saturday night with friends.   
+(first watch: Jun 27, 2022)
+
 <hr />
 
 
