@@ -160,8 +160,14 @@ PPPS: And why only teenagers? (OK, I'm too excited but it's a good movie, I can'
 (first watch: Jun 26, 2022)
 
 37. > **Heat | Micheal Mann | 1995**
-Set in LA, _Heat_ is the classic police-and-theif chase story with a heart. Follows Neil McCauley (Robert de Niro) as he crafts master plans to rob banks, and execute dissidents, manage a personal life, etc. with Vincent Hanna (Al Pacino), a LAPD Homicide officer on his tail. It's a great movie on so many levels. Great writing, cinematography, acting. It managed to keep me at the edge of my seat till 3:30 AM (LOL). Great movie for a Saturday night with friends.   
+Set in LA, _Heat_ is the classic police-and-theif chase story with a heart. Follows Neil McCauley (Robert de Niro) as he crafts master plans to rob banks, and execute dissidents, manage a personal life, etc. with Vincent Hanna (Al Pacino), a LAPD Homicide officer on his tail. It's a great movie on so many levels. Great writing, cinematography, acting. It managed to keep me at the edge of my seat till 3:30 AM (LOL). Great movie for a Saturday night with friends.
 (first watch: Jun 27, 2022)
+
+38. > **Lost and Delirious | Leo Pool | 2001**
+The story follows two teenager girls who are in love with each other but then one decides to act on the _"log kya kahenge"_ narrative which leaves the other girl distraught. The movie essentially explores the intense disheaval and delirium that the lose of a lover can bring. I think the writing was disbalanced because the characters weren't realised to their full potential (For eg: the head mistress and her side-kick). I can imagine that it must have been "blasphemous" for a 2K1 audience for it does have few "bold" scenes.
+PS: It doesn't end well.
+PPS: Yes, this is me celebrating pride month at the end because exams :cry:   
+(first watch: Jun 30, 2022)
 
 <hr />
 
