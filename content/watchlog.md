@@ -164,9 +164,9 @@ Set in LA, _Heat_ is the classic police-and-theif chase story with a heart. Foll
 (first watch: Jun 27, 2022)
 
 38. > **Lost and Delirious | Leo Pool | 2001**
-The story follows two teenager girls who are in love with each other but then one decides to act on the _"log kya kahenge"_ narrative which leaves the other girl distraught. The movie essentially explores the intense disheaval and delirium that the lose of a lover can bring. I think the writing was disbalanced because the characters weren't realised to their full potential (For eg: the head mistress and her side-kick). I can imagine that it must have been "blasphemous" for a 2K1 audience for it does have few "bold" scenes.
+The story follows two teenager girls who are in love with each other but then one decides to act on the _"log kya kahenge"_ narrative which leaves the other girl distraught. The movie essentially explores the intense disheaval and delirium that the lose of a lover can bring. I think the writing was disbalanced because the characters weren't realised to their full potential (For eg: the head mistress and her side-kick). I can imagine that it must have been "blasphemous" for a 2K1 audience for it does have few "bold" scenes. Also have to mention that Indian song/composition by Yves Chamberland which seems so out of place. Since it is unnamed, I couldn't find translation for the lyrics which is so sad. Yes, now I'm gonna go and read Macbeth :P
 PS: It doesn't end well.
-PPS: Yes, this is me celebrating pride month at the end because exams :cry:   
+PPS: Yes, this is me celebrating pride month at the end because exams :cry:
 (first watch: Jun 30, 2022)
 
 <hr />
