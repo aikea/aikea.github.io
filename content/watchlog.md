@@ -169,6 +169,10 @@ PS: It doesn't end well.
 PPS: Yes, this is me celebrating pride month at the end because exams :cry:
 (first watch: Jun 30, 2022)
 
+39. > **Mad Max: Fury Road | George Miller | 2015**
+This is _the_ definition of action-packed. Amazing movie from all respects. Loved it. Can rewatch anytime. No breakthorughs in terms of technique or cinematography but exceptional usage of existing ones. Brilliant writing of course, and editing. Now I know what the hype is all about. Again, couldn't take my eyes off it (!)   
+(first watch: July 2nd, 2022)
+
 <hr />
 
 
