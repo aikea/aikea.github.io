@@ -170,8 +170,14 @@ PPS: Yes, this is me celebrating pride month at the end because exams :cry:
 (first watch: Jun 30, 2022)
 
 39. > **Mad Max: Fury Road | George Miller | 2015**
-This is _the_ definition of action-packed. Amazing movie from all respects. Loved it. Can rewatch anytime. No breakthorughs in terms of technique or cinematography but exceptional usage of existing ones. Brilliant writing of course, and editing. Now I know what the hype is all about. Again, couldn't take my eyes off it (!)   
+This is _the_ definition of action-packed. Amazing movie from all respects. Loved it. Can rewatch anytime. No breakthorughs in terms of technique or cinematography but exceptional usage of existing ones. Brilliant writing of course, and editing. Now I know what the hype is all about. Again, couldn't take my eyes off it (!)
 (first watch: July 2nd, 2022)
+
+40. > **American Psycho | Mary Harron | 2000**
+_American Psycho_ is a open-ended, metaphorical study of the American capitalist mindset. It takes the idea of the quintessential Wall Street banker and stretches that to its extreme. It is beyond doubt that this movie counts among the finest of modern cult classics. The suspense, the drama, the sheer terror of it all, the constant pinging question of the fate of the next person Patrick Bateman would meet. Bateman stands in the company of the finest villains such as Anton Chigurh, John Doe, and Hannibal Lecter. His presence in the frame itself is terrifying and to achieve such effect requires a mastery of the craft. I admit that the ending is ambigous. We never know if it was Bateman's imagination or for real but I think that makes sense because in the high-class, ultra-rich American bourgeois circles, it is difficult to separate fact from fiction. We see that detective Kimball was unable to link any of the murders back to Bateman and just to add to your annoyance, _none_ of the "murders" committed by Patrick were seen by other people on screen. So, is Bateman the metaphorical representation of the American rich dog who is above law and order and can get away with any crime, no matter how heinous or is he the representation of the over-clocked American workman who has lost it under anxiety and tension?
+
+I watched this with a friend and totally enjoyed it. Brilliant cinematography for eg: the casual shot of Bateman opening his refrigerator door to reveal a severed female head wrapped in plastic or the stored dead female bodies in his closet. It's how quickly Harron was able to escalate situations that makes this movie a super edgy watch. 
+(first watch: July 2nd 2022)
 
 <hr />
 
