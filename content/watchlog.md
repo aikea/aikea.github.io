@@ -182,6 +182,11 @@ I watched this with a friend and totally enjoyed it. Brilliant cinematography fo
 A modern musical based on the A Capella style of music making. Enjoyed the witty dialogues and the deadpan, sometimes dark humour. Character arcs were explicit and it was fun to revisit contemporary songs in an A capella setting. Watched it with a friend and learnt a lot of A capella-terms. A-ca-awesome (!)
 (first watch: Jul 4th, 2022)
 
+42. > **When Harry Met Sally | Rob Reiner | 1989**
+Well, another classic off my list I suppose :p But it's a hilarious and touching movie. Laughed so hard at the fake Sally orgasm in the deli scene.
+(first watch: Jul 5th, 2022)
+
+
 <hr />
 
 
