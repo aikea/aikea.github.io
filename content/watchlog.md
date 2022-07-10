@@ -186,9 +186,15 @@ A modern musical based on the A Capella style of music making. Enjoyed the witty
 Well, another classic off my list I suppose :p But it's a hilarious and touching movie. Laughed so hard at the fake Sally orgasm in the deli scene.
 (first watch: Jul 5th, 2022)
 
+43. > **Little Women | Greta Gerwig | 2019**
+Wow, so many memorable lines. I really should have read the book :P They mean well when they say read the classics. One would actually want to live with the March sisters as they go about their business. Each sister is so well developed as a character and Alcott diversifed so well that every teenage girl, irrespective of their era, would be able to identify themselves with one of them. Love the conflict in Jo March's character. "I want to be great, or nothing" is so well-spoken. And then you have, "Writing doesn't confer importance, it reflects it". Cherry of a movie. Definitely watchable with kids around.
+(first watch: Jul 10th, 2022)
+
+44. > **Blue is the Warmest Color | Abdellatif Kechiche | 2013**
+Ok. I can understand now what the protests were all about when this came out 9 years ago. The male director _does_ seem to border on fetishizing lesbians. Other than that, I think it's a great movie nevertheless, although a tad too long.
+(first watch: Jul 10th, 2022)
 
 <hr />
-
 
 
 ## Closing thoughts
