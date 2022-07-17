@@ -194,6 +194,9 @@ Wow, so many memorable lines. I really should have read the book :P They mean we
 Ok. I can understand now what the protests were all about when this came out 9 years ago. The male director _does_ seem to border on fetishizing lesbians. Other than that, I think it's a great movie nevertheless, although a tad too long.
 (first watch: Jul 10th, 2022)
 
+45. > **District 9 | Neill Blomkamp | 2009**
+Entertaining. Contains strong graphic violence. Liked the character arc. 
+(first watch: Jul 17th, 2022)
 <hr />
 
 
