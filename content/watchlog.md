@@ -195,8 +195,12 @@ Ok. I can understand now what the protests were all about when this came out 9 y
 (first watch: Jul 10th, 2022)
 
 45. > **District 9 | Neill Blomkamp | 2009**
-Entertaining. Contains strong graphic violence. Liked the character arc. 
+Entertaining. Contains strong graphic violence. Liked the character arc.
 (first watch: Jul 17th, 2022)
+
+46. > **But I'm the Cheerleader | Jamie Babbit | 1999**
+What's this movie LMFAO? It's so weird and cringey and unfinished. So, basically, a group of homosexuals are sent to a therapy school called 'True Directions' which is headed by a hot-headed (read: humorous) headmistress Mary Brown (Cathy Moriarty) who believes in the simple "five step" solution to "cure" homosexuality as if it's a disease. Very cringey writing, humorous and memorable characters. Overall, a funny movie.   
+(first watch: Jul 18th, 2022)
 <hr />
 
 
