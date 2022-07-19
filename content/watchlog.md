@@ -199,8 +199,12 @@ Entertaining. Contains strong graphic violence. Liked the character arc.
 (first watch: Jul 17th, 2022)
 
 46. > **But I'm the Cheerleader | Jamie Babbit | 1999**
-What's this movie LMFAO? It's so weird and cringey and unfinished. So, basically, a group of homosexuals are sent to a therapy school called 'True Directions' which is headed by a hot-headed (read: humorous) headmistress Mary Brown (Cathy Moriarty) who believes in the simple "five step" solution to "cure" homosexuality as if it's a disease. Very cringey writing, humorous and memorable characters. Overall, a funny movie.   
+What's this movie LMFAO? It's so weird and cringey and unfinished. So, basically, a group of homosexuals are sent to a therapy school called 'True Directions' which is headed by a hot-headed (read: humorous) headmistress Mary Brown (Cathy Moriarty) who believes in the simple "five step" solution to "cure" homosexuality as if it's a disease. Very cringey writing, humorous and memorable characters. Overall, a funny movie.
 (first watch: Jul 18th, 2022)
+
+47. > **Doctor Strange: Multiverse of Madness | Sam Raimi | 2022**
+I expect MCU to deliver monotonuous, cookie-cutter, feel-good movies and it never disappoints. Great for when I want to "switch off" my brain. Also, WTF Wanda?   
+(first watch: Jul 19th, 2022)
 <hr />
 
 
