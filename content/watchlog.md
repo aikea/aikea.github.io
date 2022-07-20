@@ -203,8 +203,12 @@ What's this movie LMFAO? It's so weird and cringey and unfinished. So, basically
 (first watch: Jul 18th, 2022)
 
 47. > **Doctor Strange: Multiverse of Madness | Sam Raimi | 2022**
-I expect MCU to deliver monotonuous, cookie-cutter, feel-good movies and it never disappoints. Great for when I want to "switch off" my brain. Also, WTF Wanda?   
+I expect MCU to deliver monotonuous, cookie-cutter, feel-good movies and it never disappoints. Great for when I want to "switch off" my brain. Also, WTF Wanda?
 (first watch: Jul 19th, 2022)
+
+48. > **Phantom Thread | Paul Thomas Anderson | 2017**
+Reynolds Woodcock is a successful fashion designer who is also a pain in the ass. A man who lost his mother at a young age and misses dearly, he is the antithesis of what he projects on the outside, when he's alone. The plot follows him and Alma Elson, an indomitable local waitress as they fall in love despite their differences and is beautifully told. There are some innovative camera shots in this movie.   
+(first watch: Jul 20th, 2022)
 <hr />
 
 
