@@ -207,8 +207,12 @@ I expect MCU to deliver monotonuous, cookie-cutter, feel-good movies and it neve
 (first watch: Jul 19th, 2022)
 
 48. > **Phantom Thread | Paul Thomas Anderson | 2017**
-Reynolds Woodcock is a successful fashion designer who is also a pain in the ass. A man who lost his mother at a young age and misses dearly, he is the antithesis of what he projects on the outside, when he's alone. The plot follows him and Alma Elson, an indomitable local waitress as they fall in love despite their differences and is beautifully told. There are some innovative camera shots in this movie.   
+Reynolds Woodcock is a successful fashion designer who is also a pain in the ass. A man who lost his mother at a young age and misses dearly, he is the antithesis of what he projects on the outside, when he's alone. The plot follows him and Alma Elson, an indomitable local waitress as they fall in love despite their differences and is beautifully told. There are some innovative camera shots in this movie.
 (first watch: Jul 20th, 2022)
+
+49. > **Arrival | Denis Villeneuve | 2016**
+_Arrival_ is Ted Chiang's novella "Story of your life" adapted for the scene. Told in a non-linear chronological order by a Dr. Louisa Banks, an accomplished linguist as she recalls events of the past and yet something of her manner of talking is disconcerting. She talks in "You'd" and "I'll" as if she's _already_ aware of what will happen. And indeed, the movie explores the themes of determinism and free-will in a refreshing light. There is ample food for thought to the budding linguists in the language and its consequent decipherment of the "Heptapods" - the creatures who arrived. Amazing perfomances by Amy Adams and Jeremy Renner alongwith brilliant direction from Villeneuve who is known for masterfully directing thrillers.   
+(first watch: Jul 21st, 2022)
 <hr />
 
 
