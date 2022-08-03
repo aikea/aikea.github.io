@@ -296,6 +296,27 @@ Read more about this widely acclaimed French movie [here][14].
 
 (first watch: Jul 30th, 2022)
 
+54. > **La nuit americaine (Day for Night) | Francois Truffaut | 1973**
+
+_Day for Night_ opens to what sounds like a conductor orchestrating an arrangement.  Cuts to a livid and bustling Parisian avenue in the daylight as the camera follows a man who follows and slaps another man._"CUT!"_ and we snap back to reality &ndash; a scene was shot. _Day for Night_, which borrows its name from a filmmaking technique that is used to shoot night scenes in daytime, is a film about films by the acclaimed French New Wave director, Francois Truffaut.
+
+The rich French culture of appreciation of films as work of art shines through in this visual storytelling that verges on the metaphysical portraiture of making films itself. We follow director Ferrand (Francois Truffuat) as he fends a number of personal and professional problems of himself, the cast, and the crew to shoot a film called _"Meet Pamela"_ &ndash; an adulterous tale in which the hero's fiancee falls in love with his father.
+
+In a voiceover he rhetorically asks: **"What is a director? Someone who's asked endless questions about everything."** and goes on to prove the validity of his answer. The film beautifully captures the multitude of things going wrong, taking unexpected turns, the improvisations, the cast whims, the cast breakdowns, crew management, the logistics, the producer, the studio, and what not. I strongly believe any budding filmmaker should watch this film atleast once.
+
+What I appreciated was the fact that inspite of all hurdles, Truffaut manages to sneak in the fantasized, dream-like quality of cinema. Be it the bundle of book on filmmaking he got in order or montages of shooting set in beautiful composition accompanied by majestic upbeat music by composer Georges Delerue. He takes pride in his art like an artist in his painting. Ferrand's a restless detective, drawing inspiration from even the mundanities of existence. During the shoot, he improvises words spoken by the lead actress during her personal breakdown and introduced them as dialogues for her character! Or when he steals a blue vase from the hotel because it would fit perfectly in the scene. To be honest, it is difficult to point out where Ferrand ends and where Truffaut begins. A bit mischeivous, a bit crazy.
+
+Filmmaking is a difficult job and perhaps, the job of the director the hardest.
+
+> "A director must be a policeman, a midwife, a psychoanalyst, a sycophant, and a bastard."
+
+~Billy Wender.
+
+This movie is a great starting point to begin to understand that.
+
+PS: [_The 400 Blows_][15] next :P
+
+(first watch: August 3rd, 2022)
 
 <hr />
 
@@ -321,3 +342,4 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [12]: /wl/2021/
 [13]: https://en.wikipedia.org/wiki/Satoshi_Kon:_The_Illusionist
 [14]: /post/movie-playtime-1967/
+[15]: https://www.imdb.com/title/tt0053198/
