@@ -307,16 +307,30 @@ In a voiceover he rhetorically asks: **"What is a director? Someone who's asked 
 What I appreciated was the fact that inspite of all hurdles, Truffaut manages to sneak in the fantasized, dream-like quality of cinema. Be it the bundle of book on filmmaking he got in order or montages of shooting set in beautiful composition accompanied by majestic upbeat music by composer Georges Delerue. He takes pride in his art like an artist in his painting. Ferrand's a restless detective, drawing inspiration from even the mundanities of existence. During the shoot, he improvises words spoken by the lead actress during her personal breakdown and introduced them as dialogues for her character! Or when he steals a blue vase from the hotel because it would fit perfectly in the scene. To be honest, it is difficult to point out where Ferrand ends and where Truffaut begins. A bit mischeivous, a bit crazy.
 
 Filmmaking is a difficult job and perhaps, the job of the director the hardest.
+This movie is a great starting point to begin to understand that.
 
 > "A director must be a policeman, a midwife, a psychoanalyst, a sycophant, and a bastard."
 
 ~Billy Wender.
 
-This movie is a great starting point to begin to understand that.
 
 PS: [_The 400 Blows_][15] next :P
 
 (first watch: August 3rd, 2022)
+
+55. > **Irreversible | Gaspar Noe | 2002**
+
+Gaspar Noe is known for commenting on sensitive topics via heavily experimental, avant-garde films. In **"Irreversible"**, he undertakes the task of telling the story of an ugly and horrifying night in the life of a couple in reverse chronological order. We meet _Marcus_, wild and aggressive, who seems on the verge of a mental collapse, running across the city chasing someone by the name of Tenia. He's _the_ embodiment of aggression and violence: trashing, punching, smashing people's heads. The frames captures raw emotions, a dillusioned Marcus as Noe tries to convey his world collapsing by swirling his camera all over the subject and beyond. The camera movement seems forced and annoying compelling us to empathise with the fact that all is not well in Marcus's life and suddenly, the movements start to feel like poetic. The only point of calmness is his friend, Pierre, who accompanies him through the cacophonic night.
+
+Marcus' girlfriend, Alex, was raped and killed in the subway while Marcus and Pierre were at a party. Alex was fed up by a drunken Marcus and left for home alone. She was suggested to take the subway to cross the road as it was "safer". The shocking and terrifying 9 minute long rape scene shook the Cannes audience way back in 2002. And yet, it is so enraging and horrifying to realise that this is how it happens when it does.
+
+The movie takes a peaceful turn in the second half as Gaspar elucidates the relationship between Alex and Marcus. Their bedroom scene is so pregnant with irony; when Alex vehemantly disagrees to be treated like an object men can pass around; or when she smirks at Pierre, her ex, when asked about her sex life with Marcus. The smirk of a woman who prides herself in the secrets she keeps. Something broke in my heart when she said, _"It's always the woman who decides"_. It is a well-written balance to the first half where Marcus rummages through the wastelands of Paris, through filthy sex clubs, through depraved souls, and through smashing skulls.
+
+Gaspar Noe learnt everything in film school just to make sure he never uses them. I talked about the camera, floating in space like a spectre. There is a loud wailing noise in the background at all times. The color palatte is dark. We see subjects in glimpses.
+
+PS: Heavy violence, gore, sexual content. Highly disturbing (like all Noe movies). Watch at your discretion.
+
+(first watch: 4th August, 2022)
 
 <hr />
 
