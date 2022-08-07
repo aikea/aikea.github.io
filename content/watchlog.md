@@ -332,6 +332,10 @@ PS: Heavy violence, gore, sexual content. Highly disturbing (like all Noe movies
 
 (first watch: 4th August, 2022)
 
+56. > **The 400 Blows | Francois Truffaut | 1959**
+A classic that helped kick-start French New Wave. I loved the story and cinematography. It's a movie that celebrates childhood, Paris, and the audacity to not listen. Loved it really.   
+(first watch: 6th August, 2022)
+
 <hr />
 
 
