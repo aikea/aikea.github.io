@@ -333,8 +333,31 @@ PS: Heavy violence, gore, sexual content. Highly disturbing (like all Noe movies
 (first watch: 4th August, 2022)
 
 56. > **The 400 Blows | Francois Truffaut | 1959**
-A classic that helped kick-start French New Wave. I loved the story and cinematography. It's a movie that celebrates childhood, Paris, and the audacity to not listen. Loved it really.   
+A classic that helped kick-start French New Wave. I loved the story and cinematography. It's a movie that celebrates childhood, Paris, and the audacity to not listen. Loved it really.
 (first watch: 6th August, 2022)
+
+57. > **Who's Afraid of Virginia Woolf? | Mike Nichols | 1966**
+_Who's Afraid of Virginia Woolf?_ is an American theatrical piece by Edward Albee adapted for the screen. It explores the dysfunctional marriage of a history professor and his infertile, tumoultous wife whilst commenting on other existential issues like facing realities and the nature of illusion and lies.
+
+The play is set mostly in George and Martha's house where they receive a young, newly-wed couple, Nick, who is a professor in the Biology Department, and Honey, his "slim-hipped" wife after a party hosted by Martha's father and head of Institute. The ensuing conversation between these two couples and a number of scandalous, heart-breaking, and vicious events turn the night into a despicable hell-hole. The characters are rich in complexities and multi-layered who can be dissected for a long time and provide ample food for discussion.
+
+The central piece of the play is George and Martha's marriage and the hundred ways they cannot survive each other and yet surprisingly have stuck together for so long. It's a childless marriage and a truth Marta chooses to hide by conjuring a phantom son who is sixteen years old. George was once an ambitious young man who has a wild childhood, and has failed to achieve much in life eventually to live off his father-in-law's money, a fact Martha cruelly points out and it seems, likes to take pride in. Out of frustration, the couple lacerates each other and their guests in multiple avenues through the night. It is, to say the least, painful to watch. Words turn to acid that dissolves any affection, gestures turned murderous and appalling. George eventually breaks the reality to Martha that is, that they have no children, a fact that seem to finally cap the excited, nymphous middle-aged woman.
+
+There is love between George and Martha when she, in one of her spontaneous fits, confesses her love for George in a very poignant and deep monologue.
+
+> Martha: Whom I will not forgive for having come to rest.
+
+> For having seen me and having said "Yes, this will do."
+
+> Who has made the hideous, the hurting the insulting mistake of loving me.
+
+> And must be punished for it.
+
+> ~_Who's Afriad of Virginia Woolf?, Edward Albee_
+
+Virginia Woolf stood as a woman who preferred to face realities instead of living in illusions. Hence, the curious title of the play eventually translates to: "Who is afriad of facing realities?", an appropriate title to the play and made more stark when Martha says, "I am. I am" in her closing lines. It leaves us wondering whether we are afriad of Virginia Woolf too.
+
+(first watch: 13th August, 2022)
 
 <hr />
 
