@@ -359,6 +359,15 @@ Virginia Woolf stood as a woman who preferred to face realities instead of livin
 
 (first watch: 13th August, 2022)
 
+58. > **Kill Bill Vol. 1 | Quentin Tarantino | 2003**
+Wacky. Signature Tarantino style. Motifs of food, feet, and refreshing cinematography. Coupled with striking shots and engaging storytelling.
+
+(first watch: 14th August, 2022)
+
+59. > **Kill Bill Vol. 2 | Quentin Tarantino | 2004**
+Ditto Vol. 1. Tarantino movies are immensely rewatchable not only from the entertainment perspective which makes them accessible to the inexperienced but also serve as study material for the budding filmmakers.   
+(first watch: 15th August, 2022)
+
 <hr />
 
 
