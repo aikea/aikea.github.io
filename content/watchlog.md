@@ -365,9 +365,18 @@ Wacky. Signature Tarantino style. Motifs of food, feet, and refreshing cinematog
 (first watch: 14th August, 2022)
 
 59. > **Kill Bill Vol. 2 | Quentin Tarantino | 2004**
-Ditto Vol. 1. Tarantino movies are immensely rewatchable not only from the entertainment perspective which makes them accessible to the inexperienced but also serve as study material for the budding filmmakers.   
+Ditto Vol. 1. Tarantino movies are immensely rewatchable not only from the entertainment perspective which makes them accessible to the inexperienced but also serve as study material for the budding filmmakers.
 (first watch: 15th August, 2022)
 
+60. > **Vertigo | Alfred Hitchcock | 1958**
+
+I can understand why this movie is included in the list of "greatest films ever made" and is included in the case study of every budding filmmaker. This movie did things differently for the first time. Introduced innovative cinematographic techniques (such as the "dolly" shot) that became the standard in every filmmaker's toolkit. Pioneered computer graphic usage in films. In a way, it was one of the films that wrote how films should be made and which was how films were made for a long time. There is a residual and quite distinct 50s character and style to the film.
+
+Film was a relatively new medium of expression and it shows. From acting to the continuation of shots. The concept of "getting into a character" was meagrely defined and was still being developed. Actions sometimes just feel "empty". Camerawork, although revolutionary, was still not complete. The ability to storytell a scene via a collection of shots, though polished by Hitchcock, was still not _there_. This is very prominently portrayed by the last scene after the nun finds out two strangers on the bell-tower attic. So out of place, it made me laugh.
+
+Loved the suspense. Loved the music and design. The compositions were marvellous. Hitchcock was a master of creating suspense. This movie shows how its done.
+
+(first watch: 18nd August, 2022)
 <hr />
 
 
