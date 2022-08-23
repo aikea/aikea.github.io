@@ -377,6 +377,25 @@ Film was a relatively new medium of expression and it shows. From acting to the 
 Loved the suspense. Loved the music and design. The compositions were marvellous. Hitchcock was a master of creating suspense. This movie shows how its done.
 
 (first watch: 18nd August, 2022)
+
+61. > **Liberal Arts | Josh Radnor | 6.7**
+
+Saw a post on Instagram about the "We should hug" scene from this movie and I instantly knew that I _had_ to watch it. Brilliant writing. The dialogues are _chef's kiss_. The movie explores the themes of growing up, adulthood, and accepting changes. It tracks the life of a timid clerk who revisits his alma mater and attracts the attention of a college sophomore while soaking in his own nostalgia of college life and simultaneously battling the tinging realization of the irretrievable past. I could connect better with this movie probably because I'm in college but dude, those dialogues.
+
+
+> _"You could go up to everyone here and say, 'I'm a poet', and no one will punch you in the face."_
+
+---
+
+> _You get to sit around and read books all day and have really great conversations about idea;_
+
+> _People out in the world, they're not really doing that._
+
+
+And many more. Also, did I vent how beautiful I think the title of the movie is. ~~Should have gone to an art school.~~
+
+
+(first watch: 23rd August, 2022)
 <hr />
 
 
