@@ -396,8 +396,15 @@ And many more. Also, did I vent how beautiful I think the title of the movie is.
 
 
 (first watch: 23rd August, 2022)
-<hr />
 
+62. > **Barry Lyndon | Stanley Kubrick | 8.1**   
+
+_Barry Lyndon_ is a period drama set in 1700s England during the reign of George, the third. It is the story of an unknown young and ambitious man who through his cunning and bravado achieves much and just as quickly loses everything, as men often tend to become fools and meek after the attainment of a certain portion of wealth and fortune.     
+
+The film is a great starting place to study composition in films. The elaborate settings, the costumes, the props, the posture - Kubrick shows his meticule and attention to detail. The repeating motif of pull back shots is a characteristic of this film (The pull-back shot is generally used to reveal location around the vicinity of a character and/or serve as establishing shots). The masterful use of pull backs can be studied to understand when and when not to use a pull back. Loved it.   
+
+(first watch: 28th August, 2022)  
+<hr />
 
 ## Closing thoughts
 
