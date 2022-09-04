@@ -404,6 +404,15 @@ _Barry Lyndon_ is a period drama set in 1700s England during the reign of George
 The film is a great starting place to study composition in films. The elaborate settings, the costumes, the props, the posture - Kubrick shows his meticule and attention to detail. The repeating motif of pull back shots is a characteristic of this film (The pull-back shot is generally used to reveal location around the vicinity of a character and/or serve as establishing shots). The masterful use of pull backs can be studied to understand when and when not to use a pull back. Loved it.   
 
 (first watch: 28th August, 2022)  
+
+63. > **Vivre sa vie | Jean Luc-Godard | 7.9**   
+
+_Vivre sa vie_ (My life to live) follows a young girl as she descents into the occupation of prostitution. The story untolds in a set of 12 labelled tableaux (scenes but more disjoint in time and space). This film is a product of the French New Wave phenomenon and it is evident from the unorthodox camera movements, avant-garde cuts (cue in the ingenious gun shot scene with Nana in the cafe and Raoul outside). Tracking shots, gyrating shots, extreme bird view tracking shots, and static, almost fixated close-up shots with a disregard to the environment (often without any establishing shots), all of which helped establish _Vivre sa vie_ as an iconic New Wave film. The chemistry and tumultous relationship between Godard and Anna Karina cannot be overlooked in any conversation involving the New Wave simply because of her creative influence on Godard in the creation of the new style. 
+
+In _Vivre sa vie_, she uses style, body language, and facial expressions to express the apprehensions of a struggling Parisian woman trying to make both ends meet. I personally loved the conversation with the philosopher (the 11th tableaux). The last tableaux is reminiscient of "Breathless" (the parallel will be obvious to those who have watched it; I will leave it to others to find out). A film about life and love. An art film.    
+
+(first watch: 4th September, 2022)
+
 <hr />
 
 ## Closing thoughts
