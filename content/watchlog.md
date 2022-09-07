@@ -420,7 +420,11 @@ A great first watch of Lynch. Blue velvet next ;)
 
 65. > **Wreck-It Ralph | Rich Moore | 7.7**    
 One of the feel-good movies, something I can count on Disney to provide when I need them the most. Amazing story, great character chemistry, the dialogues, the character design, the animation, sound design, the art, the creativity dude, the creativity. Loved it.  
-(first watch: 7th September, 2022)
+(first watch: 6th September, 2022)   
+
+66. > **Ralph breaks the internet | Rich Moore, Phil Johnston | 7**      
+I mean I had to, right? How could I keep stalling this cherry of a sequel that delivers important life-lessons in a creative and beautiful way? Loved it. Quintessential Disney.   
+(first watch: 8th September, 2022)
 
 <hr />
 
