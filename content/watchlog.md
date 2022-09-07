@@ -411,7 +411,16 @@ _Vivre sa vie_ (My life to live) follows a young girl as she descents into the o
 
 In _Vivre sa vie_, she uses style, body language, and facial expressions to express the apprehensions of a struggling Parisian woman trying to make both ends meet. I personally loved the conversation with the philosopher (the 11th tableaux). The last tableaux is reminiscient of "Breathless" (the parallel will be obvious to those who have watched it; I will leave it to others to find out). A film about life and love. An art film.    
 
-(first watch: 4th September, 2022)
+(first watch: 4th September, 2022)   
+
+64. > **Mulholland Drive | David Lynch | 8.2**   
+My introduction to David Lynch. Let me be honest that I have been prepetually stalling this director only to watch one of his magnus opus on an inpulsive spree. And boy, oh boy, it's incredible. Gave me literal chills. Horror, suspense, atmosphere, setting, hot lead actresses, mind-fucking thriller. All the hype I heard about MD being able to conjure successfully one of the most suspenseful atmosphere is, in fact, true.     
+A great first watch of Lynch. Blue velvet next ;)   
+(first watch: 5th September, 2022)
+
+65. > **Wreck-It Ralph | Rich Moore | 7.7**    
+One of the feel-good movies, something I can count on Disney to provide when I need them the most. Amazing story, great character chemistry, the dialogues, the character design, the animation, sound design, the art, the creativity dude, the creativity. Loved it.  
+(first watch: 7th September, 2022)
 
 <hr />
 
