@@ -424,8 +424,18 @@ One of the feel-good movies, something I can count on Disney to provide when I n
 
 66. > **Ralph breaks the internet | Rich Moore, Phil Johnston | 7**      
 I mean I had to, right? How could I keep stalling this cherry of a sequel that delivers important life-lessons in a creative and beautiful way? Loved it. Quintessential Disney.   
-(first watch: 8th September, 2022)
+(first watch: 8th September, 2022)   
 
+67. > **Tokyo Godfathers | Satoshi Kon | 7.8**     
+This remained on my list for a very long time. All Kon movies are delightful from his efforts in going that extra mile for the characters, to wholesome stories, and cinematography. Kon is a master of his medium.    
+
+In Tokyo Godfathers, he chooses to tell the story of three homeless bums who couldn't be more different but somehow manage to stick around - a drinker and gambler who left his family, a homosexual, needy man, and a stubborn teenager who ran away from home after she stabbed her father. The story chronicles their journey through Tokyo of trying to find the mother of an abandoned child on Christmas and how they eventually the child's godfathers.    
+
+Kon explores the theme of mother's love but the theme is so subtle and fleeting that one only comes to terms with it at the climax. And I think that is ingenious and a nice way to outstand from the herd where the trope of "mother's love" sits glaring front and centre, literal death by boredom. Kon keeps us so sufficiently distracted in all the happenings, the quirky characters, the action, the shocking twists to sneakily plant the theme in place.    
+
+Kon also takes liberty to sermonize us through the characters on love, life, people. However, compared to his previous works like _Perfect Blue_, _Millenium Actress_, or _Paprika_, he lets his illusionist edge take a back-seat. The story is top-notch and real, and he chooses to put _that_ front and centre. I loved it!   
+
+(first watch: 9th September, 2022)     
 <hr />
 
 ## Closing thoughts
