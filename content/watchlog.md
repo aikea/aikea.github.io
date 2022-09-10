@@ -436,6 +436,21 @@ Kon explores the theme of mother's love but the theme is so subtle and fleeting 
 Kon also takes liberty to sermonize us through the characters on love, life, people. However, compared to his previous works like _Perfect Blue_, _Millenium Actress_, or _Paprika_, he lets his illusionist edge take a back-seat. The story is top-notch and real, and he chooses to put _that_ front and centre. I loved it!   
 
 (first watch: 9th September, 2022)     
+
+68. > **Call Me By Your Name | Luca Guadagnino | 7.8**     
+_CMBYN_ is a love story told in the span of a summer between a teenage boy and a researcher who is spending the summer with the boy's father, an anthropology (linguistics?) professor. It's a beautiful film, from the shots to the composition of scenes. I liked that aspect. It does a commendable job of capturing the anxiousness, apprehensions of immature experience of first love. 
+
+The centrepiece of the movie is Elio, the awkward, nervous lover-boy. He transcribes music, reads a hell lot of books, swims, doesn't respond very well to invitations of love, is not competent enough to express his own, dozes off after jerking off, is excessively horny, does weird things when he's around a lover, in short: he's a schoolboy. PS: At one point, he is told to "grow up".   
+
+On another note, Marzia (Esther Garrel). Oh. My. Fucking. God.    
+
+Too slow for _my_ tastes but I guess that is by design. I actually left it midway some time back and completed it today.   
+
+_"Is it better to speak or to die?"_  
+
+(first watch: 10th September, 2022)    
+
+
 <hr />
 
 ## Closing thoughts
