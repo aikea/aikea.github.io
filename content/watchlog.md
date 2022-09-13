@@ -448,8 +448,23 @@ Too slow for _my_ tastes but I guess that is by design. I actually left it midwa
 
 _"Is it better to speak or to die?"_  
 
-(first watch: 10th September, 2022)    
+(first watch: 10th September, 2022)     
 
+69. > **North By Northwest | Alfred Hitchcock | 8.3**    
+
+A trademark Hitchcock. A gripping mystery, a hero chase, beautiful heroine in distress, generous dollops of misogyny, engaging rhythm, creative cinematography. It was a good story that got complimented by the conversion to the film medium by Hitchcock and not the other way around. But what really stood out for me was the subtle misogyny and treatment of women by Hitchcock in his films:   
+
+> Eve: I'm a big girl.   
+Thornbill: Yeah, and in all the right places too.  
+
+WTF? 
+
+Or this,
+
+> Eve: Maybe it was the first time anyone    
+ever asked me to do anything worthwhile.
+
+(first watch: 13 September, 2022)
 
 <hr />
 
