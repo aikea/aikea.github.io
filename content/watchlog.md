@@ -464,7 +464,21 @@ Or this,
 > Eve: Maybe it was the first time anyone    
 ever asked me to do anything worthwhile.
 
-(first watch: 13 September, 2022)
+(first watch: 13 September, 2022)    
+
+70. > **My Sassy Girl | Jae-young Kwak | 2001**   
+
+Based on the true story of a boy's relationship that he wrote about on his blog, MSG was a phenomenal success in Korea when it was released. And now, when I have watched it, I can see why. It is quirky, hilarious, and heart-warming. It manages to overturn typical stereotypes of the society back then too. With a relationship in jeopardy, let's just say it's something I needed at this point.   
+
+PS: Extra points for that car drive scene and the resolution at the end.   
+
+(first watch: 16 September, 2022 )
+
+71. > **Vantage Point | Pete Travis | 2008**    
+
+A refreshing new idea. So, the film is essentially a retelling of the story of the assassination of the POTUS at a peace summit in Spain through, you guessed it, multiple vantage points. Pete artfully divulges new information through these people's perspective, kinda mimicking how no one agent in a system has complete information about an event but rather is distributed. This quality of an unreliable source of truth has often hastened critics to draw comparisons with Kurosawa's _Rashomon_ but I suppose that is too hasty and ill-founded. The _Rashomon effect_ referred to the absence of confidence in the account of any narrator of an event. With a little thought, it can be seen that _Vantage Point_ is not the same as the different vantage point only divulges more _and coherent_ information about the truth that is generally agreed upon. It can be, interpreted as, an innovative mode of narration and sure, something that kept me engaged till the very end.    
+   
+(first watch: 16 September, 2022)    
 
 <hr />
 
