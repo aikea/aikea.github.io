@@ -472,13 +472,42 @@ Based on the true story of a boy's relationship that he wrote about on his blog,
 
 PS: Extra points for that car drive scene and the resolution at the end.   
 
-(first watch: 16 September, 2022 )
+PPS: My introduction to Korean New Wave lesgoooo!    
+
+(first watch: 16 September, 2022 ) 
 
 71. > **Vantage Point | Pete Travis | 2008**    
 
 A refreshing new idea. So, the film is essentially a retelling of the story of the assassination of the POTUS at a peace summit in Spain through, you guessed it, multiple vantage points. Pete artfully divulges new information through these people's perspective, kinda mimicking how no one agent in a system has complete information about an event but rather is distributed. This quality of an unreliable source of truth has often hastened critics to draw comparisons with Kurosawa's _Rashomon_ but I suppose that is too hasty and ill-founded. The _Rashomon effect_ referred to the absence of confidence in the account of any narrator of an event. With a little thought, it can be seen that _Vantage Point_ is not the same as the different vantage point only divulges more _and coherent_ information about the truth that is generally agreed upon. It can be, interpreted as, an innovative mode of narration and sure, something that kept me engaged till the very end.    
    
 (first watch: 16 September, 2022)    
+
+72. > **Waking Life | Richard Linklater | 2001**   
+
+_Waking Life_ is an introspective and rich movie commemorating and simultaneously examining human life and existence in general. There is no plot as such and nothing "progresses" in a conventional way. The protagonist is dreaming and talking to a number of people who are sermonizing him on a variety of topics, deep philosophical questions that loosely try to answer, "What are we?". Linklater comments on linguistics, on morality, evolution, existentialism, the mind, politics, democracy (or lack thereof), of raw human emotions like hunger, anger, frustration, and what they lead to like murders, bombings, and war. There are two shots - one of a man who while talking to the protagonist on a sidewalk, sets himself on fire in broad daylight and another seemingly innocuous conversation between two pals in a bar which escalated into both shooting at each other. The pace of the movie is slow but it lends itself well to be watched at 1.5x or even 2x, just to keep one on their toes.    
+
+Linklater is known for creating immersive experiences out of human conversations (_Before Sunset_) and he does that here as well. Of course, it is futile to talk about this movie without talking about the unique visual style. I think it was a nice decision to animate the movie so as to allow that degree of freedom in more creatively expressing the dream-like premise in which the story unfolds. Kudos to the animator team. Loved those disorienting environment shifts, the floating buildings and trees. That had an enchanting effect on me personally.    
+
+My first impression was: Cool-ass movie where people ask deep philosophical questions. That still holds good.   
+
+(first watch: 17 September, 2022)   
+
+73. > **Paterson | Jim Jarmusch | 2016**     
+
+If I have to summarise this movie in one line: "The story of a modern man". That may sound bland and simple but it isn't. This movie follows a bus driver, Paterson (Adam driver) in the eponymous city of Paterson, New Jersey. He cuddles his wife in bed, wakes up at past 6, goes to work, takes his dog for a walk, hangs out in the bar. There doesn't seem to be anything wrong with his life and then you realise that is exactly what _is_ wrong with his life. He is a poet and writes in free-verse in his "secret notebook". A girl calls him, "A bus driver that likes Emily Dickinson". He rarely smiles or laughs and when he does, he's careful to draw back. Maybe it's difficulty to communicate with others, maybe it's loneliness. he loves his wife, loves his job, likes to listen to people having conversations on the bus - draws inspiration from everything around him. He's a poet, after all.    
+
+His wife has big dreams. Wants to be a country star, bakes cupcakes that are a hit at a local community and earns her $286. The small wins that accrue. Revels in the rich history and heritage of his city. It's a movie that will make one think deeply about things. Or maybe not. But that's not the point.   
+
+(first watch: 20th September, 2022)    
+
+74. > **Loves of a Blonde | Milos Forman | 1965**    
+
+_Loves of a Blonde_ is Forman's concerns vocalised about an Eastern Czechoslovakia that is lagging behind its contemporary Western counterparts. He employs a number of elements to convey that apprehension. Being a jazz fan, he points out how Slovaks were still using traditional music in ballrooms whereas _Beatlemania_ was raging in Western blocs (It was the 1960s, after all). He talks about the perception of sexual relations in contemporary Czechoslovak, consequent perception of woman, their doubts and concerns, outdated seduction practices. But at the same time, we see Andula, the heroine rebelling and making herself an active participant in her sexual lifestyle (supposedly a controversial idea at that time). We see her in an almost naked frontal shot, vivid and bright, like a fearless independent woman.    
+
+I like to think it was Forman silently talking about the next generation of Czechs waking up from their isolated worldviews to their Western counterparts and slowly coming to speed with the modern world. And of course, there is no dramatic plot or character transformation, although it is a feature. Overall, a gentle introduction to Czech cinema for me.    
+
+(first watch: 19th September, 2022)    
+
 
 <hr />
 
