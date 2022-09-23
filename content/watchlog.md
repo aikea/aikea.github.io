@@ -508,6 +508,17 @@ I like to think it was Forman silently talking about the next generation of Czec
 
 (first watch: 19th September, 2022)    
 
+75. > **Blue Velvet | David Lynch | 1986**    
+
+_Blue Velvet_ is an American thriller neo-noir. Set in a small town called Lumberton, we are introduced to a potentially unstable masochist singer Dorothy Vallens (Isabella Rossellini) via the protagonist, Jeffrey, who has returned to town and has conveniently started romancing the local detective's daughter (Laura Dern). With the romance of Jeffrey and Sandy forming a distracting side-plot, Lynch tells the story of Dorothy and Frank, "a very sick and dangerous man", via, again, Jeffrey who is someone of a "mystery lover", breaking into apartments and following criminals in the night. Frank has made a sexual slave out of Dorothy by blackmailing her about her kidnapped husband and son. Frank is killed. Dorothy returns back to sanity after uniting with her son and Jeffrey and Sandy are a thing.    
+
+Drawing obvious parallels between _Blue Velvet_ and _Mulholland Drive_, I was better able to understand Lynch's style, cinematography, and mind. Innocuous objects are lent a chilling dimension, common places (the stairway to Dorothy's apartment, for example) are casted into mysterious and malicious environments, while characters hold central stage in stylization and dialogues as they enrapture the audience from the beginning. Of course, none of these contribute to the plot but manages to instantaneously heighten the suspense and drama of a scene, something Hitchcock would be extremely proud of. _Blue Velvet_ has its share of absurdity and weirdness. For example; why the hell was that hooker dancing on top of the car while Jeffrey was being assaulted by Frank? The strong and lasting imageries that Lynch creates stems from his ability to appeal to the sensual and inherently absurd quality of the human mind. Sensuality, sexuality, the "primal instinct" (Remember Frank's "I'll fuck anything that moves"?), destruction, crime are such an important theme of the film. it is how Lynch views modern society, full of crime and lust - "a strange world". Kudos to Isabelle R for incredible and bold portraiture of a disheveled mother and wife - a character of conflict herself when she cannot decide if she should report to the police or give in to her own pleasures that she draws from being slapped and beaten.    
+
+Mixed feelings about how I _feel_ about this movie but in any case, it's a must-watch. Masterpiece? I won't go so far (That would be _Mulholland Drive_ if anything). Managed to inspire Tarantino, Coen brothers, and the like. Influential. Yes, that.   
+
+_"It's a strange world"_ is a recurrent dialogue in the movie. It really is. I think the movie is Lynch's expression of personal anguish of finding himself in a strange world and counting on the robins to arrive. Something we all can identify with, I suppose.     
+
+(first watch: 23rd September, 2022)
 
 <hr />
 
