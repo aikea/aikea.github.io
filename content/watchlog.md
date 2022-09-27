@@ -215,7 +215,19 @@ This is _the_ definition of action-packed. Amazing movie from all respects. Love
 40. > **American Psycho | Mary Harron | 2000**
 
 _American Psycho_ is a open-ended, metaphorical study of the American capitalist mindset. It takes the idea of the quintessential Wall Street banker and stretches that to its extreme. It is beyond doubt that this movie counts among the finest of modern cult classics. The suspense, the drama, the sheer terror of it all, the constant pinging question of the fate of the next person Patrick Bateman would meet. Bateman stands in the company of the finest villains such as Anton Chigurh, John Doe, and Hannibal Lecter. His presence in the frame itself is terrifying and to achieve such effect requires a mastery of the craft. I admit that the ending is ambigous. We never know if it was Bateman's imagination or for real but I think that makes sense because in the high-class, ultra-rich American bourgeois circles, it is difficult to separate fact from fiction. We see that detective Kimball was unable to link any of the murders back to Bateman and just to add to your annoyance, _none_ of the "murders" committed by Patrick were seen by other people on screen. So, is Bateman the metaphorical representation of the American rich dog who is above law and order and can get away with any crime, no matter how heinous or is he the representation of the over-clocked American workman who has lost it under anxiety and tension?
-I watched this with a friend and totally enjoyed it. Brilliant cinematography for eg: the casual shot of Bateman opening his refrigerator door to reveal a severed female head wrapped in plastic or the stored dead female bodies in his closet. It's how quickly Harron was able to escalate situations that makes this movie a super edgy watch.
+I watched this with a friend and totally enjoyed it. Brilliant cinematography for eg: the casual shot of Bateman opening his refrigerator door to reveal a severed female head wrapped in plastic or the stored dead female bodies in his closet. It's how quickly Harron was able to escalate situations that makes this movie a super edgy watch.    
+
+
+#### Review 2 that I wrote for college newsletter: 
+
+American Psycho is an open-ended, metaphorical study of the American capitalist mindset. It explores the limits of the psychological derangement of the quintessential Wall Street banker. The tantalizing question of the fate of the next person Patrick Bateman (Christian Bale) encounters keeps the viewers on their toes. Bateman stands in the company of some of the greatest villains of all time: Anton Chigurh (No Country for Old Men), John Doe (Se7en), and Hannibal Lecter (Silence of the Lambs).
+
+Bale’s calm and cold demeanor lends a chilling edge to his character. We never find out if the events shown were fictitious or real, which mirrors the blurred line between fact and fiction in aloof aristocratic circles, American or not. We see that detective Kimball was unable to link any of the murders to Bateman, and to add to one’s annoyance, none of the "murders" committed by Patrick were seen by anybody else on screen.    
+
+Is Bateman the representation of the opulent, entitled American who can get away with any crime, regardless of how heinous it is, or the overclocked American workman driven to insanity by anxiety and tension?
+
+Brace yourself, as Bateman sermonizes his victims to the music of “Huey Lewis and the News” or Whitney Houston in one scene and axes them in the next; or as he opens his refrigerator to casually reveal severed female heads wrapped in plastic. Psycho, without doubt, justifies itself as a modern cult classic.   
+
 (first watch: July 2nd 2022)
 
 41. > **Pitch Perfect | Jason Moore | 2012**
@@ -237,7 +249,9 @@ Wow, so many memorable lines. I really should have read the book :P They mean we
 
 44. > **Blue is the Warmest Color | Abdellatif Kechiche | 2013**
 
-Ok. I can understand now what the protests were all about when this came out 9 years ago. The male director _does_ seem to border on fetishizing lesbians. Other than that, I think it's a great movie nevertheless, although a tad too long.
+Ok. I can understand now what the protests were all about when this came out 9 years ago. The male director _does_ seem to border on fetishizing lesbians. Other than that, I think it's a great movie nevertheless, although a tad too long.   
+
+PS: I Follow Rivers is such an earworm, OMG!!    
 
 (first watch: Jul 10th, 2022)
 
@@ -535,6 +549,44 @@ One tiny rant: I think the explanation at the climax by the psychatrist was an o
 _"We all go a little mad sometimes"_. Yes, and _Psycho_ confronts (celebrates?) that upfront and close.     
 
 (first watch: 24 September, 2022)   
+
+77. > **Fantastic Mr. Fox | Wes Anderson | 2009**    
+
+A rather curious visual style adopted by Wes Anderson that is reminiscient of 3D stop-motion with clay models.   
+
+Once in a while, it is uplifting to watch movies like _Mr. Fox_, within which you can get lost and take a break. A reverse Icarus character arc, adorable characterizations, and the visual style. That's what I remember.    
+
+Oh, and this :P   
+
+```
+Boggis and Bunce and Bean,
+One fat, one short, one lean.
+These horrible crooks, so different in looks.
+Were nonetheless equally mean.
+```
+
+(first watch: 24 September, 2022)   
+
+78. > **Four Lions | Chris Morris | 2010**   
+
+_Four Lions_ is a British dark comedy satire commenting on the state of Islamic terrorism in the UK, their perception by the general crowd, and the eminent danger they pose today. I cannot begin to describe how cleverly written and well-researched this film is. I was laughing so hard in places.  
+
+The plot shows four (five actually) Muslims in London who are wannabe terrorists and how they want the ummah to rise up, their disgust for homosexuality, collective hatred towards consumerist, capitalist Western culture, and on and on. I don't wanna spoil it for you but it's a must-watch. What it manages to do is develop a powerful message about a controversial and sensitive topic in a humorous and light-hearted package.  
+
+Sample this: "Just because I'm a Muslim, you thought it was real?"    
+
+(first watch: 26 September, 2022)    
+
+79. > **Reservoir Dogs | Quentin Tarantino | 1992**   
+
+A bank robbery gone wrong. In Tarantino land. Identifiable motifs - men in black, car trunk scene, generous dollops of gore and violence, blood, blood, blood, gunshots, distrust, and a phasic narration style.    
+
+Six ragtags men are assembled to pull a daylight diamond heist but the maneuver goes wrong as police bust their plans. The story picks from this point where characters deliberate, ponder, and fight over the existence and identity of an undercover cop amongst them. Distrust, fear, and suspense are held in these scenes meticulously, in their carefully crafted dialogues to their behaviours. Sandwiched between these dialogues which mostly unfolds in a warehouse garage, Quentin tells the backstory of these goons. Quentin shows how creating good cinema does not require elaborate sets or a big bulky budget.    
+
+And that climax, OMG.   
+
+(first watch: 27 September, 2022)   
+
 
 <hr />
 
