@@ -587,6 +587,24 @@ And that climax, OMG.
 
 (first watch: 27 September, 2022)   
 
+80. > **A Trip to the Moon | Georges Meiles | 1902**    
+
+Oh, so finally we're here. At the beginning. This 15 minute science-fiction short is what most cinema historians consider as the realisation of the art of the moving camera as a form of art. It is plenty evident from the style, presentation, and techniques of an early explorer's pioneering efforts. As if they are surveying a new found medium, defining new limits and new "laws". The remnants of theaters are obvious too. Meiles was more of an illusionist than a director just like directors of his era. The idea of expression realism developed much later but the basic gist of cinema remains unchanged (and which we find stark and central stage in 'Le Voyage das la Lune'): story-telling.     
+
+Georges was an absurdist, and a visionary. There are long static and wide shots, strictly defining the boundaries of what's in frame and what's not. The realisation that the frame _itself_ can be dynamic through the film was unknown to these early adopters. The claustrophobic shots is one of the features that stood out for me, along with interesting camera trickery that gave varied effects on screen (superimposition of the human face on the moon, perhaps one of the most iconic cinematic images). It is ironic to think how just seventy years from when we specualated of going to the moon, we actually did go to the moon.     
+
+Another interesting exercise, as I was led to believe online, is an interpretation of ATTTM. Most accepted theory is Meiles criticizing man as a bringer of chaos and highlights the destructive nature of man. They "invaded" moon and crashed into the moon-people uninvited. We may choose to laud these gentlemen on Earth for their accomplishment and bravery, but as soon as images of the moustacheod professor/astronaut spanking moon-residents with his umbrella kicks in as they disappear in a puff of smoke, we are led to rethink our zeal. After the end of 15 minutes as we stare at the tall statue of the astronaut, we are led to think what have they actually accomplished?     
+
+(first watch: 27 September, 2022)    
+
+81. > **Django Unchained | Quentin Tarantino | 2012**    
+
+_Django Unchained_ is a Western action film by and follows Django, initially a black slave in a pre-Civil war USA in the South and his subsequent rise, through a fortuitous turn of events, to become a formidable bounty hunter. It is also a dark and serious commentary on the ill-treatment of blacks by the whites. Never has such passion erupted in my heart as watching the atrocities meted out to the blacks in this film as any other. It has been a fastastic experience (which QT film isn't?). Scenes with suspense are so exceptionally composed, one might mistake to not be watching them but actually be in it. There was a tension between the whites and the blacks back in the 1850s. It is the same tension that Tarantino manages to weave into his scenes that lends gravity to the story. (For eg; Periodic pistol-clocking by Django under the table.)     
+
+Django is an exceptional character in its own right. A talented shooter who has a formidable level of confidence and grit. One of the good Western's out there. (Oh I know, I should finally move my ass to watching _The Good, The Bad, and the Ugly_ but oh well).    
+
+(first watch: 29 September, 2022)     
+
 
 <hr />
 
