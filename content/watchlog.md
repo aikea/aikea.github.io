@@ -605,6 +605,13 @@ Django is an exceptional character in its own right. A talented shooter who has 
 
 (first watch: 29 September, 2022)     
 
+82. > **Slumdog Millionaire | Danny Boyle | 2008**    
+
+_SM_ is a shining example of how incredibly wrong people can be. Almost slated to be released in DVD, it was finally released in theaters after much tussle within Warner Bros. Recognized as a sleeper hit, it went on to win 8 Oscars in 2008 - yes, 8, including Best Picture, Best Director, and Best Adapted Screenplay.   
+
+_SM_ is a "rags to riches" story of an uneducated 18 year old slumboy named Jamal Malik who went on to win 2 crore rupees on a television show. Suspected of foul play, he is arrested by the police and chronicles his accumulated his experiences of growing up and how he knew all the answers. Visually disturbing and starkly true, SM reminds me of White Tiger but only better. Loved the fairy-tale ending that balances well with the social commentary on the condition of slum kids. Must appreciate the cinematography, editing and acting by Dev Patel. A great place to get to know India.    
+
+(first watch: 1 October, 2022)
 
 <hr />
 
