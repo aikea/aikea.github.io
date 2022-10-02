@@ -613,6 +613,17 @@ _SM_ is a "rags to riches" story of an uneducated 18 year old slumboy named Jama
 
 (first watch: 1 October, 2022)
 
+83. > **Blue Valentine | Derek Cianfrance | 2010**   
+
+
+(first watch: 1 October, 2022)   
+
+84. > **The French Dispatch | Wes Anderson | 2021**   
+
+I have written my thoughts [here][16].   
+
+(first watch: 2 October, 2022)
+
 <hr />
 
 ## Closing thoughts
@@ -637,3 +648,4 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [13]: https://en.wikipedia.org/wiki/Satoshi_Kon:_The_Illusionist
 [14]: /post/movie-playtime-1967/
 [15]: https://www.imdb.com/title/tt0053198/
+[16]: /post/the-french-dispatch-2021/
