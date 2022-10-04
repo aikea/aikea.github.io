@@ -619,7 +619,19 @@ I have written my thoughts [here][16].
 
 _Nocturnal Animals_ is an interesting American psychological thriller. It tells the story of a rich and successful art curator who receives a copy of a new book written by her ex-husband whom she left for being less ambitious. As she reads through the story (which is also visually narrated to us), she slowly descends into depression as she realises how wrong she has been. At the end, she tries to redeem her mistake by trying to patch things with her ex-husband as her current marraige is failing and she's pretty sure her husband is sleeping with other woman. The narrated story is about a man who lost his wife and daughter on the highway to Texas to a bunch of goons and found them raped and murdered later. Partnered with a cancerous police-officer, they manage to find the culprits who are murdered in increasing degrees of gore before he shots himself. So, yeah, kind of a mindfuck. Two parallele narrations and the innovative switched between them is interesting. The impressive use of sound and environment to create an atmosphere of increasing suspense and terror is commendable. Overall, it's a nice entertainment piece.   
 
-(first watch: 3 October, 2022)
+(first watch: 3 October, 2022)    
+
+86. > **Moonrise Kingdom | Wes Anderson | 2012**   
+
+Unlike other Wes Anderson movies, _Moonrise Kingdom_ is a profound inquiry into the psychological tendencies of young children. It explores the themes of orphans and disturbed childhood. But of course, it raises these serious issues in Anderson's light-hearted, peculiarly comical manner. We get what Anderson is telling us but don't get overwhelmed. The message is there, it's just a little subtle.   
+
+We follow Mr. Sam Shakusky, an orphaned twelve-year old Boy Scout who resigns from his position to rendezvous with his love interest, Ms. Suzy Bishop, an emotionally perturbed tweleve-year old girl who Sam had the chance to fancy at a performance where she played, conveniently, the raven. Their elopement was not spontaneous but involved an intimate and detailed correspondence via letters that now, Mr. and Ms. Bishop, victims of a failing marriage themselves, as Suzy spots her mother secretly spending time with Captain Sharp, the local Island police, have found and call for a search. With Sam's exceptional Scout-boy skills and Suzy's considerable inventory, they spend time on Mile 3.25 Tidal Inlet AKA the "Moonrise Kingdom", only to be separated later by Scout master Ward and Suzy's parents. The plot gets more involved but in the end, they get back together.   
+
+It's a sweet and charming children's movie with a little bit of objectionable material for kids. It portrays that crazy excitement of first love and kissing/being kissed for the first time. The awkwardness, the alienness, and the exhilaration. Charming and poignant in its own way. While at the same time commenting on the mental condition of an orphan who is sent to foster parents who send him to Boy Scout (And who later disown him after they hear that he's a runaway), and a twelve-year old girl who finds a book titled "Coping with the very troubled child" with her parents. Indeed, books are an integral part of the film as Suzy loves to read books about female leads (that she stole from the library, haha) to Sam. The books, themselves, are not rugged or real but maintain that ornamental "doll-house" quality so common of props in an Anderson film. 
+
+We see two kids, untouched by the corruptions of the world yet, who identify with one another and decide to heal each other just as well. In _Moonrise Kingdom_, we see a different aspect of Anderson. He celebrates childhood, that transient, innocent time of our lives.   
+
+(first watch: 4 October, 2022)
 
 <hr />
 
