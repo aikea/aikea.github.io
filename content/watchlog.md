@@ -591,7 +591,9 @@ Another interesting exercise, as I was led to believe online, is an interpretati
 
 _Django Unchained_ is a Western action film by and follows Django, initially a black slave in a pre-Civil war USA in the South and his subsequent rise, through a fortuitous turn of events, to become a formidable bounty hunter. It is also a dark and serious commentary on the ill-treatment of blacks by the whites. Never has such passion erupted in my heart as watching the atrocities meted out to the blacks in this film as any other. It has been a fastastic experience (which QT film isn't?). Scenes with suspense are so exceptionally composed, one might mistake to not be watching them but actually be in it. There was a tension between the whites and the blacks back in the 1850s. It is the same tension that Tarantino manages to weave into his scenes that lends gravity to the story. (For eg; Periodic pistol-clocking by Django under the table.)     
 
-Django is an exceptional character in its own right. A talented shooter who has a formidable level of confidence and grit. One of the good Western's out there. (Oh I know, I should finally move my ass to watching _The Good, The Bad, and the Ugly_ but oh well).    
+Django is an exceptional character in its own right. A talented shooter who has a formidable level of confidence and grit. One of the good Western's out there. (Oh I know, I should finally move my ass to watching _The Good, The Bad, and the Ugly_ but oh well).   
+
+_Auf Wiedersehen_.   
 
 (first watch: 29 September, 2022)     
 
@@ -631,7 +633,19 @@ It's a sweet and charming children's movie with a little bit of objectionable ma
 
 We see two kids, untouched by the corruptions of the world yet, who identify with one another and decide to heal each other just as well. In _Moonrise Kingdom_, we see a different aspect of Anderson. He celebrates childhood, that transient, innocent time of our lives.   
 
-(first watch: 4 October, 2022)
+(first watch: 4 October, 2022)    
+
+87. > **The Kashmir Files | Vivek Agnihotri | 2022**   
+
+The squabble and controversy that abounded the release of this movie was justified. _TKF_ is a hard polarising movie if consumed without context or history and thus, a conveniently dangerous trigger for the impulsive youths. Facts are heavily distorted, sometimes even changed just to fit a one-sided narrative that Agnihotri has tried to propagate in this movie. Ironically enough, in a movie which likened the Kashmiri Pandit exodus to nothing less than the Holocaust, I could safely argue that that movie is infact a propaganda film aimed less at narrating an unbiased history but creating disbalance and enmity in society.     
+
+Clocking at a whooping ~170 minutes of runtime, the story of Kashmiri Pandits is told in which the sympathy rests solely with the Pandits. A wobbly plot, lame writing, and an incoherent presentation of information makes for a jarring watch if only countered by impressive performances by a relatively star-studded cast. Anupam Kher as a distraught Kashmiri Pandit comes to mind. Suboptimal acting by the protag made me cringe but it is Bollywood after all and we cannot escape drama. The legacy, lore, and myth of Kashmir was presented in a manner that seemed more to mock the audience for not knowing such an important piece of Kashmir's legacy than to provide that information. There is considerable gore and blood shown with explicit scenes of assault and murder. Again, the objective seemed less to provide context to an "unbiased" telling of the history (which was, of course, absent) but to instigate a new generation of youth into cornering a certain section of the society as malicious. Yes, a piece of Agnihotri's fetishized reality.   
+
+In all the crossfire, Faiz's poetry _Hum Dekhenge_ is distorted to conveniently fit into the narrative by invoking traditional Islamist fundamentalist views and somehow managing to interpret the poetry in that light. In his rallying to identify with the plight of Kashmiri Pandits, Agnihotri manages to paint a more blood-bathed picture of the Valley than the paradise that it really is.    
+
+In conclusion, my original advice of consuming his movie with considerable perspective and context is essential to sift facts from fiction. Or to not consume this movie altogether.   
+
+(first watch: 5 October, 2022)   
 
 <hr />
 
