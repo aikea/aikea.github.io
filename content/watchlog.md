@@ -647,6 +647,11 @@ In conclusion, my original advice of consuming his movie with considerable persp
 
 (first watch: 5 October, 2022)   
 
+88. > **A Clockwork Orange | Stanley Kubrick | 1971**   
+
+(first watch: 6 October, 2022)
+
+
 <hr />
 
 ## Closing thoughts
