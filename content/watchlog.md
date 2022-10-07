@@ -649,8 +649,15 @@ In conclusion, my original advice of consuming his movie with considerable persp
 
 88. > **A Clockwork Orange | Stanley Kubrick | 1971**   
 
+Read about my thoughts [here][18].
+
 (first watch: 6 October, 2022)
 
+89. > **13 going on 30 | Gary Winick | 2004**   
+
+I know, just little harmless things I do sometimes. A relatively less mentaly demanding chick-flick. Liked the references esp. to Blue Velvet, Talking Heads, and Jesse's Girl.    
+
+(first watch: 07 october, 2022)
 
 <hr />
 
@@ -678,3 +685,4 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [15]: https://www.imdb.com/title/tt0053198/
 [16]: /post/the-french-dispatch-2021/
 [17]: /post/movie-psycho-1960
+[18]: /post/movie-a-clockwork-orange-1971/
