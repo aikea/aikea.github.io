@@ -657,7 +657,31 @@ Read about my thoughts [here][18].
 
 I know, just little harmless things I do sometimes. A relatively less mentaly demanding chick-flick. Liked the references esp. to Blue Velvet, Talking Heads, and Jesse's Girl.    
 
-(first watch: 07 october, 2022)
+(first watch: 07 october, 2022)   
+
+90. > **Minority Report | Steven Spielberg | 2002**     
+
+If you ask me to describe _Minority Report_, I'll call it a movie of ideas. Directed by Spielberg, it's a testimony to changing times, changing technology, and Spielberg responding to that change (_Ready Player One_ anyone?). Based on a Philip K. Dick short story (yes, this guy seems to supply most of our sci-fi plots), we are introduced to the Department of Precrime whose job is to stop perpetrators _before_ they commit the crime. They are able to do this with the help of three "Pre-cogs", surviving humans from a failed genetic experiment with a superpower. The movie is highly debatable and thought-provoking asking the obvious questions of the morality involved in arresting someone _before_ they commit any crime and the difficult question of choice, free-will, and determination. As someone explained, the Pre-cogs don't show what you intend to do but what you are going to do. So, when John Ardenton (Tom Cruise), the officer in Precrime gets to know he's gonna murder someone, he starts a chain of events that with the intention of preventing that event, will inevitable lead him to it.   
+
+Setting these questions aside, we come to the engaging story because it is essentially a crime thriller with a Christie-esque (God, I have to work on my portmanteaus!) whodunnit undertones. It got fairly predictable towards the climax but it was entertaining for the better part.   
+
+Spielberg manages to paint a "plausible" futuristic vision in this film where "plausible" is defined (tongue-in-cheek by me) as not cringe enough to make me gawk but acceptable. It is a loose definition by intention as it is difficult to predict the future (no pun intended :P). Impressive computer interfaces, futuristic cars, a centrally surveillanced city system, advanced law-and-order equipments, it was cool.   
+
+Now, coming to direction and cinematography. The building surveillance scene with spyders while Ardenton is on the run is nicely shot in bird-eye view. It's a brilliant decision because the nature of the policemen is voyeuristic / intruding and nothing could have captured that better than a God-like bird-eye shot of the residents. This is just one example I can think of right now. Engaging camerawork. Loved it.  
+
+(first watch: 09 October, 2022)    
+
+91. > **Punch Drunk Love | Paul Thomas Anderson | 2002**    
+
+Hmm. I remember starting this movie way back and leaving it around the 30 minutes mark because nothing seemed to be happening. Now, that was quite naive of me but on a second attempt, I understood that those first 30 minutes in a 90 minute film does tell the story by not telling any.   
+
+_Punch Drunk Love_ is a simple and profound story of love and finding love. It is essentially a brilliantly told character transformation story. We meet Barry, our protagonist and immediately figure that something is off. He's heckling a customer care line about how their frequent flyer offer outvalues the price of the product monetarily. Not talkative, small brother with seven sisters, scruffy around people, anxious about social gathering, wearing a suit at 8am(!), everything seems strange about him. Some really cool shots worth mentioning are the piano stealing scene and the three cut shots of Barry looking down at the piano from three sides. It's so beautifully executed. Barry is a lonely grown-up man with a crying problem. He loses his temper often and ends up kicking and shattering glass at her sister's birthday. There is a beautiful shot of Barry with drooped head and Anderson pans the camera to the left to reveal an empty dinner table (typically where loved ones converse) showing how lonely he is. Again, brilliantly done. He's talking to his brother-in-law and talks about how "I don't like myself sometimes" and "I don't have someone I can talk to about things" and "I sometimes cry a lot for no reason." Now, these are serious issues and very much real in today's society. Anderson is talking about real condition of real men in the real world. There's this line "Everybody would be there and I'd get a little tense and I won't act like myself" and I broke a little inside.   
+
+As much as it is a story of Barry, let's talk about the agent that brought about his transformation. Lena Leonard, the woman in the red dress. The more she got to know him, the more she accepted him, something he needed. Being caught in the wrong company by a phone-sex line gang, after he falls in love with Lena, he goes all the way to Utah from L.A. just to tell the guy that he's not afraid of anything because he has someone who loves him. It's not so much as telling the guy but telling himself. That's something he has been wanting to listen to and now, it's there. This is where he derives his new-found power from. No more the timid, hesistant, and awkward Barry. But have I talked about the single most memorable shot of this film? Yes! The Hawaiian rendezvous! The framing and composition, the choice of silhoutte, the body language, omg! It blew my mind really.    
+
+PS: I saw this movie featured in a StudioBinder video on yt and got reminded of leaving it midway so here we are. 
+
+(first watch: 09 October, 2022)   
 
 <hr />
 
