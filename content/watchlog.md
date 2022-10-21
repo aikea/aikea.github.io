@@ -683,6 +683,16 @@ PS: I saw this movie featured in a StudioBinder video on yt and got reminded of 
 
 (first watch: 09 October, 2022)   
 
+92. > **The Big Lebowski | Coen Brothers | 1998**   
+
+_TBL_ is a evident departure by the Coen brothers from their element and yet threads close to the spirit of a Coen production. It is a comedy-drama that follows a Jeffrey Lebowski (Jeff Bridges), a pot-bellied, failed bum, who joins his friends, Donny and Walter, in bowling tournaments diligently (and pretty much nothing else). But things go awry when two rogues come and piss on his rug, mistaking him for another Jeffrey Lebowski, a namesake and a more accomplished individual with considerable reputation and a hot-chick wife who is in debt from a Mr. Jackie Treehorn. Our Jeff or "Dude" as he likes to be called, is slowly embroiled in a progression of different cacophonies. And that is essentially it, a million dollars in ransom, a kidnapped wife and a quest to bring her back.   
+
+_TBL_ works for its very well-written characters, tidy cinematography, and story-telling. Walter Sobchak is a truly eccentric character, a short-tempered good-for-nothing who manages to fail in everything and bring the Vietnam war into every conversation. A man who loves rules and gets real upset real fast if he finds people flunking rules, Walter is just one example of a memorable and eccentric character. Infact every character lends a unique charm to every scene and create a humorous environment overall. This is a departure from the usual Coen characters who create a chilling aura on screen (Anton Chigurh from _No country for old men_).   
+
+Enjoyed it. Oh, and Julianne Moore. And that opening bowling game scene in slow-motion _chef's kiss_.      
+
+(first watch: 21 October, 2022)     
+
 <hr />
 
 ## Closing thoughts
