@@ -693,6 +693,18 @@ Enjoyed it. Oh, and Julianne Moore. And that opening bowling game scene in slow-
 
 (first watch: 21 October, 2022)     
 
+93. > **The Double Life of Veronique | Krzysztof Kieślowski | 1991**    
+
+94. > **Spirited Away | Hayao Miyazaki | 2001**   
+
+95. > **The Usual Suspects | Bryan Singer | 1995**    
+
+96. > **Some Like It Hot | Billy Wilder | 1959**    
+
+
+
+(first watch: 7 November, 2022)     
+
 <hr />
 
 ## Closing thoughts
