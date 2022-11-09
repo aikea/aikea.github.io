@@ -701,9 +701,15 @@ Enjoyed it. Oh, and Julianne Moore. And that opening bowling game scene in slow-
 
 96. > **Some Like It Hot | Billy Wilder | 1959**    
 
-
-
 (first watch: 7 November, 2022)     
+
+97. > **Sunset Boulevard | Billy Wilder | 1950**   
+
+_Sunset Boulevard_ is an American drama/noir film executed to the highest degree of perfection. It follows a forgotten, old actress, Norma Desmond (Gloria Swanson) who lives in her own imaginative fiction where she believes she is still adored by her fans, and respected by her colleagues. The progression and eventual breakdown of her mental psyche makes up the core plotline for the film. On the other hand, we have a struggling screenwriter who stumbles upon her palace of comfort and seclusion and ends up becoming a follower/submissive?. He is trying to come to terms with his inability to "make it big" and accepting his failure with resignation. The internal conflict of these characters form an interesting dynamic throughout the film and presents multiple real-world conundrums through it. The characters are very well-developed and presented. A shoutout for Ms. Desmond's house which is an exquisite example of a mise-en-scene. The film is engaging and keeps one on the edge and yet is not horrific. It asks deep questions through the characters and invites us to understand their plights. To all the praises I have heard about _SB_, I think it deserves all.      
+
+The element of a dashing broke male protagonist becoming the object of affection for a plural number of attractive females or vice-versa (As seen in _Some Like It Hot_) seems to me a popular story device of the 50s. Here too, we see Betty Shaefer and Norma Desmond fall for our charming little gentleman, Joe Gillis. As a matter of fact, I found little misogynistic comments / dialogues than _Some Like It Hot_ which seems to be a mark of the era rather than the director's mindset themselves.       
+
+(first watch: 8 November, 2022)     
 
 <hr />
 
