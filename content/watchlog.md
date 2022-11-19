@@ -711,10 +711,24 @@ The element of a dashing broke male protagonist becoming the object of affection
 
 (first watch: 8 November, 2022)
 
-98. > **The Truman Show | Peter Weir | 1998**   
+98. > **The Truman Show | Peter Weir | 1998**
 
-_The Truman Show_ is an avant-garde piece of cinematic writing. It asks deep questions in an innocuous disguise. There are many clever references as treats for the inquisitive ones. And, it is a most wholesome of the so-called "happy endings". I loved the unconventional voyeuristic camerawork that delibrately gave out the impression of being watch. That coupled with sneaky writing on the events and plotline lend extra suspense as we knew something was off from the beginning but couldn't really manage to place it. _TTS_ does a great job of arresting that suspense in a fulfilling manner. Questions of morality, personal freedom, the television, internet, online voyeurism, tracking, social engineering, illusion, facade, and so much more, just pours out of the premise itself. I'm sure, something new will come out of _TTS_ everytime one sits to watch it and it will lead to a healthy amount of debate and discussion everytime.      
-(first watch: 12 November, 2022)     
+_The Truman Show_ is an avant-garde piece of cinematic writing. It asks deep questions in an innocuous disguise. There are many clever references as treats for the inquisitive ones. And, it is a most wholesome of the so-called "happy endings". I loved the unconventional voyeuristic camerawork that delibrately gave out the impression of being watch. That coupled with sneaky writing on the events and plotline lend extra suspense as we knew something was off from the beginning but couldn't really manage to place it. _TTS_ does a great job of arresting that suspense in a fulfilling manner. Questions of morality, personal freedom, the television, internet, online voyeurism, tracking, social engineering, illusion, facade, and so much more, just pours out of the premise itself. I'm sure, something new will come out of _TTS_ everytime one sits to watch it and it will lead to a healthy amount of debate and discussion everytime.
+(first watch: 12 November, 2022)
+
+99. > **Double Indemnity | Billy Wilder | 1944**   
+
+_Double Indemnity_ is an American neo-noir thriller with many twists in the plot, subplots, complex characters, and weird-ass 50s dialogues and acting. It is Billy Wilder's crazy experiment into creating a cinematic flick that would attract a cinema-going audience and also manage to establish him as a visionary in American film landscape. _Double Indemnity_, at its heart, is a tale of trust and deceit. Characters build trust and end up both betraying and getting betrayed simultaneously. A healthy dose of 50s American slang, sometime getting too mentally jarring to comprehend. Signature Wilder with his cocky weird-ass jokes that would be better received by an audience of the 50s, I guess.   
+
+All in all, a nice continuation of exploring Wilder's works.   
+<!-- 
+Lustful, big-mouthed, conversation maker protagonist. Sexual predator. Cockily misogynist.   
+Submissive dame. Highly sexualised. In a deadlock with the current marriage. The perfect situation for the predator to make a move.   
+Toxic exploitative husband
+A healthy dose of 50s American slangs. Sometimes, gets excessive and mentally jarring to comprehend.    -->
+
+
+(first watch: 19 November, 2022)    
 
 <hr />
 
