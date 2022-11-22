@@ -730,6 +730,18 @@ A healthy dose of 50s American slangs. Sometimes, gets excessive and mentally ja
 
 (first watch: 19 November, 2022)    
 
+100. > **The Man Who Stole The Sun | Kazuhiko Hasegawa | 1979**   
+
+_The Man Who Stole The Sun_ is a Japanese dark humour comedy which follows a meek school science teacher who ends up making an atomic bomb in his apartment and quite literally brings the whole Tokyo state police to its knees. It is a deeply engaging movie with a lot of plot twists and thought-provoking events. With some wacky and interesting editing, the stop-motion theft of plutonium from the reactor sequence comes to mind, the shot composition, and the overall cinematography in this film is top-notch.     
+
+There is a bit of everything in this ~150 minutes long film &ndash; action squences, car chases, murder, gore, romance, comedy, music. TMWSTS explores two very different themes &ndash; the anguish and determination in the life of a lonely young man. Who wouldn't sympathise with Mr. Kido AKA the A-bomb man, #9, and Bubblegum when Inspector Yamashita yells in the end scene, _"That's who you really want to kill-it's you!"_? At the same time, we get a glimpse into the destituted and utterly inept condition of state authority as they try in vain to nab the perpretrator. We are forced to question ourselves, What good is it to rest our trust for security in a state institution like this?  
+
+I _loved_ the soundtrack in this movie. It was layered and beautifully executed. And the shots, ah. Whatever be the case, right out there with the likes of Akira and Spirited Away, TMWSTS is a classic Japanese flick that is an eye-candy to watch.   
+
+
+PS: I got to know about this rather obscure film (and many others) via this newly discovered YT channel called [The Kino Corner][19]. Check out [their video][20] too!
+(first watch: 22 November, 2022)    
+
 <hr />
 
 ## Closing thoughts
@@ -754,6 +766,8 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [13]: https://en.wikipedia.org/wiki/Satoshi_Kon:_The_Illusionist
 [14]: /post/movie-playtime-1967/
 [15]: https://www.imdb.com/title/tt0053198/
-[16]: /post/the-french-dispatch-2021/
+[16]: /post/the-french-dispatch-2021/ 
 [17]: /post/movie-psycho-1960
 [18]: /post/movie-a-clockwork-orange-1971/
+[19]: https://www.youtube.com/@TheKinoCorner
+[20]: https://www.youtube.com/watch?v=JMN_QW4RdXw
