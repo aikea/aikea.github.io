@@ -742,6 +742,16 @@ I _loved_ the soundtrack in this movie. It was layered and beautifully executed.
 PS: I got to know about this rather obscure film (and many others) via this newly discovered YT channel called [The Kino Corner][19]. Check out [their video][20] too!
 (first watch: 22 November, 2022)    
 
+101. > **Napoleon Dynamite | Jared Hess | 2004**   
+
+Hmm, how do I describe _Napoleon Dynamite_? It's a funky movie set in the middle of nowhere of Idaho and follows the titular character of Napoleon Dynamite who is far, far away from being anything close to a dynamite. Infact, characters seem to be in semi-sleep deprived state ironic given the title of the film. With very minimal and almost no action, _NB_ manages to irk out some laughs and certainly some chuckles with clever writing and a slapstick-esque comedy style. It's stupid and wacky and feels senseless but once you see it, you realise that is the beauty of it.   
+
+It's a story with profound plotlines and memorable characters. It's about finding love beyond barriers (The hilarious Lawfunduh and Kip tale), and priding in being the underestimated, neglected underdog who rises when the time is ripe. It's a hilarious movie and worth watching just for the sake of Napoleon and the kind of (mis)adventures he is a part of.    
+
+PS: They also made an animated 6 episode series out of this.   
+
+(first watch: 24 November, 2022)     
+
 <hr />
 
 ## Closing thoughts
