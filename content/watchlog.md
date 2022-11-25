@@ -752,6 +752,21 @@ PS: They also made an animated 6 episode series out of this.
 
 (first watch: 24 November, 2022)     
 
+102. > **Stuck in Love | Josh Boone | 2012**    
+
+_Stuck in Love_ combines literature and romance into a feel-good flick where defective characters eventually "find themselves" via experiences of love and beyond. It follows a family of a successful writer father who has been divorced for three years but finds it hard to move on. His two kids, a shy teenager boy who loves Stephen King and is socially awkward and his promiscous daughter who simply refuses to believe in love and dating because of the scars her parent's separation left on her. It's a story where characters eventually gain understanding, perspective, and clarity that the meaning of love is different for everyone. It ends on a happy note so there's that. Loved the literature references such as ref to "What We Talk About When We Talk About Love" by Raymond Craver where he ends, 
+
+> I could hear my heart beating. I could hear everyone's heart. I could hear the human noise we sat there making, not one of us moving, not even when the room went dark.   
+~_What We talk About When We Talk About Love_, Raymond Craver
+
+Wow. 
+
+And how Flannery O' Connor, an American novelist and essayist said that the first 20 years of experiences is enough to inspire a writer for the rest of their creative output. I sooo love this.    
+
+PS: It had Jennifer Connelly in it. _gasp_   
+
+(first watch: 25 November, 2022)    
+
 <hr />
 
 ## Closing thoughts
