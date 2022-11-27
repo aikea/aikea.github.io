@@ -767,6 +767,12 @@ PS: It had Jennifer Connelly in it. _gasp_
 
 (first watch: 25 November, 2022)    
 
+103. > **Dogtooth | Yorgos Lanthimos | 2009**   
+
+What is Dogtooth? To be honest, I don't know. Is it a work of genius or just another director's brain fart? Is there a deeply embedded and profound message in the film or are we just left to our devices to find one where none exists? It is hard to say. It is set in a Parasite-esque sprawling residence complete with all amentities where the parents have brainwashed their three children into confining them to the house. They go to great lengths to do the same, reinventing words and changing their meanings ("Zombie" is a small yellow flower, for example), faking the death of their imaginary brother by a evil creature called the "cat". It's a film that contains many explicit scenes of violence, gore, and blood - Martin, the boy gorging out the guts of a cat with gardener's scissors or the eldest smashing her mouth with a dumbell to get her dogtooth out - afterwards which she's told she would be able to venture out and face the challenges of the world outside. Not a lot seems to be happening in the film - these characters moving around in slow and calculated steps, the cameras held in static shots as if everybody is holding their breaths and its kind of ironic given the pristine environment they live in. But once we look deeper, we find darker things going on in the house. Themes of submission are generously explores throughout the film along with incest and homosexuality. The climax is open-ended as we find the eldest girl being able to identify the shroud of lies her parents have put up and escaping out in her father's car but we don't really find out what happens to her afterwards. The last shot is a long take of her father's backcabin. And that's pretty much all I wanna say about Dogtooth. Weird-ass Greek movie.      
+
+(first watch: 26 November, 2022)    
+
 <hr />
 
 ## Closing thoughts
