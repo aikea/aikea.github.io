@@ -773,6 +773,22 @@ What is Dogtooth? To be honest, I don't know. Is it a work of genius or just ano
 
 (first watch: 26 November, 2022)    
 
+104. > **Pan's Labyrinth | Guillermo del Toro | 2006**   
+
+Oh. My. God. _Pan's Labyrinth_ is a beautiful, chilling modern fairy tale story. But don't believe "fairy tale" means all unicorns and magic spells - although, Pan's Labyrinth doesn't lack in imagination - there are more twists and moments of heightened suspense than in any conventional flick. Beautifully shot, the lighting are amazing, the color palettes, and the cinematography. And of course, the CGI. A very Alice in Wonderful-like plot but nothing like it. It has ample gore and bloodshed and death and magic creatures and fairies and fauns. Incredible experience.      
+
+Set in the Spanish civil war, it follows a little girl who discovers she is a magical princess but must perform three tasks to prove her fairyhood. Instead of spoiling the plot for you, I'll just leave it for you to explore :)       
+
+(first watch: 27 November, 2022)    
+
+105. > **Investigation of a Citizen Above Suspicion | Elio Petri | 1970**   
+
+_Investigation of a Citizen Above Suspicion_ begins with the murder of a beautiful woman, Augusta Terzi (Florinda Bolkan), with a severe rape-and-murder fetish by her police chief lover. Interestingly, the chief doesn't try to cover his tracks but instead place evidences so that the police can trace the murder to him. And yet, even more intriguingly, the police chooses to unsee the evidence and defer the investigation simply because the culprit is a man of power. Indeed, the chief exclaims (multiple times) &ndash; _"I represent power, Augusta!"_ The film questions state authority and machismo as the investigation unfolds against a youth-led communist uprising challenging the state dominance, which is most brilliantly represented by one of the most potent scenes &ndash; the interrogation of the plumber. One must notice the dialogues very carefully as they drip with irony and fear. It's one of the most riveting demonstrations of the power of state authority and a starking representation of the theme of the movie. Shot in intimate full face shots, it's upclose and personal. We can study each muscle twitch of the face. Fantastically executed. Perhaps, the single dialogue that summarizes the state's attitude is this: _"We must know everything. We must control everything."_ The movie is also the commentary on the psychological transition of a man who is given incredible power to exercise. He breaks the traffic light and gets away with it. Terzi exclaims, _"You can commit any crime you want"_ and we are left to ponder: Who will watch the watchmen?      
+
+Coming to execution, _Investigation_ has some of the finest camerawork I have seen. Scene compositions are great, the camera movement graceful as they sway around a scene intriguing and creating suspense. I don't know much about Italian cinema (I'm reminded of _Life is Beautiful_) but I suppose this will be up there. Complementary and "humorous" sound track. Love the flashback sequences.   
+
+(first watch: 28 November, 2022)    
+
 <hr />
 
 ## Closing thoughts
