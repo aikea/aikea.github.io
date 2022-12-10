@@ -789,6 +789,16 @@ Coming to execution, _Investigation_ has some of the finest camerawork I have se
 
 (first watch: 28 November, 2022)    
 
+106. > **Once Upon A Time ... In Hollywood | Quentin Tarantino | 2019**    
+
+_Once Upon A Time In Hollywood_ takes place in Hollywood in the 60s and tells the story of a fictional actor named Rick Dalton and his stuntman double, Cliff Booth. They happen to be neighbors to Roman Polanski and Shannon Tate (played by Margot Robbie) and end up getting engaged in a number of internal and external conflicts such as career issues, fight with the hippies, and so on.     
+
+The movie is a portrayal of the bourgeois Hollywood circles and a social commentary on the good ol' have and have-nots. All filmed in classic Tarantino style. We have everything from feet to food to fight scenes with "Bruce Lee". Car drives form a large portion in the first half and peculiar hovering bird-eye view shots too. And then, of course, the finale and confrontation at Rick's house. And a special mention for Margot Robbie, oof :P!    
+
+I like how the film mingles the real life and the film life. Gave me a lot of Truffaut's _Day For Night_ vibes. All in all, a good watch for a lazy Saturday evening.    
+
+(first watch: 10 December, 2022)    
+
 <hr />
 
 ## Closing thoughts
