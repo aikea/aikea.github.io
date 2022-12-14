@@ -716,88 +716,96 @@ The element of a dashing broke male protagonist becoming the object of affection
 _The Truman Show_ is an avant-garde piece of cinematic writing. It asks deep questions in an innocuous disguise. There are many clever references as treats for the inquisitive ones. And, it is a most wholesome of the so-called "happy endings". I loved the unconventional voyeuristic camerawork that delibrately gave out the impression of being watch. That coupled with sneaky writing on the events and plotline lend extra suspense as we knew something was off from the beginning but couldn't really manage to place it. _TTS_ does a great job of arresting that suspense in a fulfilling manner. Questions of morality, personal freedom, the television, internet, online voyeurism, tracking, social engineering, illusion, facade, and so much more, just pours out of the premise itself. I'm sure, something new will come out of _TTS_ everytime one sits to watch it and it will lead to a healthy amount of debate and discussion everytime.
 (first watch: 12 November, 2022)
 
-99. > **Double Indemnity | Billy Wilder | 1944**   
+99. > **Double Indemnity | Billy Wilder | 1944**
 
-_Double Indemnity_ is an American neo-noir thriller with many twists in the plot, subplots, complex characters, and weird-ass 50s dialogues and acting. It is Billy Wilder's crazy experiment into creating a cinematic flick that would attract a cinema-going audience and also manage to establish him as a visionary in American film landscape. _Double Indemnity_, at its heart, is a tale of trust and deceit. Characters build trust and end up both betraying and getting betrayed simultaneously. A healthy dose of 50s American slang, sometime getting too mentally jarring to comprehend. Signature Wilder with his cocky weird-ass jokes that would be better received by an audience of the 50s, I guess.   
+_Double Indemnity_ is an American neo-noir thriller with many twists in the plot, subplots, complex characters, and weird-ass 50s dialogues and acting. It is Billy Wilder's crazy experiment into creating a cinematic flick that would attract a cinema-going audience and also manage to establish him as a visionary in American film landscape. _Double Indemnity_, at its heart, is a tale of trust and deceit. Characters build trust and end up both betraying and getting betrayed simultaneously. A healthy dose of 50s American slang, sometime getting too mentally jarring to comprehend. Signature Wilder with his cocky weird-ass jokes that would be better received by an audience of the 50s, I guess.
 
-All in all, a nice continuation of exploring Wilder's works.   
-<!-- 
-Lustful, big-mouthed, conversation maker protagonist. Sexual predator. Cockily misogynist.   
-Submissive dame. Highly sexualised. In a deadlock with the current marriage. The perfect situation for the predator to make a move.   
+All in all, a nice continuation of exploring Wilder's works.
+<!--
+Lustful, big-mouthed, conversation maker protagonist. Sexual predator. Cockily misogynist.
+Submissive dame. Highly sexualised. In a deadlock with the current marriage. The perfect situation for the predator to make a move.
 Toxic exploitative husband
 A healthy dose of 50s American slangs. Sometimes, gets excessive and mentally jarring to comprehend.    -->
 
 
-(first watch: 19 November, 2022)    
+(first watch: 19 November, 2022)
 
-100. > **The Man Who Stole The Sun | Kazuhiko Hasegawa | 1979**   
+100. > **The Man Who Stole The Sun | Kazuhiko Hasegawa | 1979**
 
-_The Man Who Stole The Sun_ is a Japanese dark humour comedy which follows a meek school science teacher who ends up making an atomic bomb in his apartment and quite literally brings the whole Tokyo state police to its knees. It is a deeply engaging movie with a lot of plot twists and thought-provoking events. With some wacky and interesting editing, the stop-motion theft of plutonium from the reactor sequence comes to mind, the shot composition, and the overall cinematography in this film is top-notch.     
+_The Man Who Stole The Sun_ is a Japanese dark humour comedy which follows a meek school science teacher who ends up making an atomic bomb in his apartment and quite literally brings the whole Tokyo state police to its knees. It is a deeply engaging movie with a lot of plot twists and thought-provoking events. With some wacky and interesting editing, the stop-motion theft of plutonium from the reactor sequence comes to mind, the shot composition, and the overall cinematography in this film is top-notch.
 
-There is a bit of everything in this ~150 minutes long film &ndash; action squences, car chases, murder, gore, romance, comedy, music. TMWSTS explores two very different themes &ndash; the anguish and determination in the life of a lonely young man. Who wouldn't sympathise with Mr. Kido AKA the A-bomb man, #9, and Bubblegum when Inspector Yamashita yells in the end scene, _"That's who you really want to kill-it's you!"_? At the same time, we get a glimpse into the destituted and utterly inept condition of state authority as they try in vain to nab the perpretrator. We are forced to question ourselves, What good is it to rest our trust for security in a state institution like this?  
+There is a bit of everything in this ~150 minutes long film &ndash; action squences, car chases, murder, gore, romance, comedy, music. TMWSTS explores two very different themes &ndash; the anguish and determination in the life of a lonely young man. Who wouldn't sympathise with Mr. Kido AKA the A-bomb man, #9, and Bubblegum when Inspector Yamashita yells in the end scene, _"That's who you really want to kill-it's you!"_? At the same time, we get a glimpse into the destituted and utterly inept condition of state authority as they try in vain to nab the perpretrator. We are forced to question ourselves, What good is it to rest our trust for security in a state institution like this?
 
-I _loved_ the soundtrack in this movie. It was layered and beautifully executed. And the shots, ah. Whatever be the case, right out there with the likes of Akira and Spirited Away, TMWSTS is a classic Japanese flick that is an eye-candy to watch.   
+I _loved_ the soundtrack in this movie. It was layered and beautifully executed. And the shots, ah. Whatever be the case, right out there with the likes of Akira and Spirited Away, TMWSTS is a classic Japanese flick that is an eye-candy to watch.
 
 
 PS: I got to know about this rather obscure film (and many others) via this newly discovered YT channel called [The Kino Corner][19]. Check out [their video][20] too!
-(first watch: 22 November, 2022)    
+(first watch: 22 November, 2022)
 
-101. > **Napoleon Dynamite | Jared Hess | 2004**   
+101. > **Napoleon Dynamite | Jared Hess | 2004**
 
-Hmm, how do I describe _Napoleon Dynamite_? It's a funky movie set in the middle of nowhere of Idaho and follows the titular character of Napoleon Dynamite who is far, far away from being anything close to a dynamite. Infact, characters seem to be in semi-sleep deprived state ironic given the title of the film. With very minimal and almost no action, _NB_ manages to irk out some laughs and certainly some chuckles with clever writing and a slapstick-esque comedy style. It's stupid and wacky and feels senseless but once you see it, you realise that is the beauty of it.   
+Hmm, how do I describe _Napoleon Dynamite_? It's a funky movie set in the middle of nowhere of Idaho and follows the titular character of Napoleon Dynamite who is far, far away from being anything close to a dynamite. Infact, characters seem to be in semi-sleep deprived state ironic given the title of the film. With very minimal and almost no action, _NB_ manages to irk out some laughs and certainly some chuckles with clever writing and a slapstick-esque comedy style. It's stupid and wacky and feels senseless but once you see it, you realise that is the beauty of it.
 
-It's a story with profound plotlines and memorable characters. It's about finding love beyond barriers (The hilarious Lawfunduh and Kip tale), and priding in being the underestimated, neglected underdog who rises when the time is ripe. It's a hilarious movie and worth watching just for the sake of Napoleon and the kind of (mis)adventures he is a part of.    
+It's a story with profound plotlines and memorable characters. It's about finding love beyond barriers (The hilarious Lawfunduh and Kip tale), and priding in being the underestimated, neglected underdog who rises when the time is ripe. It's a hilarious movie and worth watching just for the sake of Napoleon and the kind of (mis)adventures he is a part of.
 
-PS: They also made an animated 6 episode series out of this.   
+PS: They also made an animated 6 episode series out of this.
 
-(first watch: 24 November, 2022)     
+(first watch: 24 November, 2022)
 
-102. > **Stuck in Love | Josh Boone | 2012**    
+102. > **Stuck in Love | Josh Boone | 2012**
 
-_Stuck in Love_ combines literature and romance into a feel-good flick where defective characters eventually "find themselves" via experiences of love and beyond. It follows a family of a successful writer father who has been divorced for three years but finds it hard to move on. His two kids, a shy teenager boy who loves Stephen King and is socially awkward and his promiscous daughter who simply refuses to believe in love and dating because of the scars her parent's separation left on her. It's a story where characters eventually gain understanding, perspective, and clarity that the meaning of love is different for everyone. It ends on a happy note so there's that. Loved the literature references such as ref to "What We Talk About When We Talk About Love" by Raymond Craver where he ends, 
+_Stuck in Love_ combines literature and romance into a feel-good flick where defective characters eventually "find themselves" via experiences of love and beyond. It follows a family of a successful writer father who has been divorced for three years but finds it hard to move on. His two kids, a shy teenager boy who loves Stephen King and is socially awkward and his promiscous daughter who simply refuses to believe in love and dating because of the scars her parent's separation left on her. It's a story where characters eventually gain understanding, perspective, and clarity that the meaning of love is different for everyone. It ends on a happy note so there's that. Loved the literature references such as ref to "What We Talk About When We Talk About Love" by Raymond Craver where he ends,
 
-> I could hear my heart beating. I could hear everyone's heart. I could hear the human noise we sat there making, not one of us moving, not even when the room went dark.   
+> I could hear my heart beating. I could hear everyone's heart. I could hear the human noise we sat there making, not one of us moving, not even when the room went dark.
 ~_What We talk About When We Talk About Love_, Raymond Craver
 
-Wow. 
+Wow.
 
-And how Flannery O' Connor, an American novelist and essayist said that the first 20 years of experiences is enough to inspire a writer for the rest of their creative output. I sooo love this.    
+And how Flannery O' Connor, an American novelist and essayist said that the first 20 years of experiences is enough to inspire a writer for the rest of their creative output. I sooo love this.
 
-PS: It had Jennifer Connelly in it. _gasp_   
+PS: It had Jennifer Connelly in it. _gasp_
 
-(first watch: 25 November, 2022)    
+(first watch: 25 November, 2022)
 
-103. > **Dogtooth | Yorgos Lanthimos | 2009**   
+103. > **Dogtooth | Yorgos Lanthimos | 2009**
 
-What is Dogtooth? To be honest, I don't know. Is it a work of genius or just another director's brain fart? Is there a deeply embedded and profound message in the film or are we just left to our devices to find one where none exists? It is hard to say. It is set in a Parasite-esque sprawling residence complete with all amentities where the parents have brainwashed their three children into confining them to the house. They go to great lengths to do the same, reinventing words and changing their meanings ("Zombie" is a small yellow flower, for example), faking the death of their imaginary brother by a evil creature called the "cat". It's a film that contains many explicit scenes of violence, gore, and blood - Martin, the boy gorging out the guts of a cat with gardener's scissors or the eldest smashing her mouth with a dumbell to get her dogtooth out - afterwards which she's told she would be able to venture out and face the challenges of the world outside. Not a lot seems to be happening in the film - these characters moving around in slow and calculated steps, the cameras held in static shots as if everybody is holding their breaths and its kind of ironic given the pristine environment they live in. But once we look deeper, we find darker things going on in the house. Themes of submission are generously explores throughout the film along with incest and homosexuality. The climax is open-ended as we find the eldest girl being able to identify the shroud of lies her parents have put up and escaping out in her father's car but we don't really find out what happens to her afterwards. The last shot is a long take of her father's backcabin. And that's pretty much all I wanna say about Dogtooth. Weird-ass Greek movie.      
+What is Dogtooth? To be honest, I don't know. Is it a work of genius or just another director's brain fart? Is there a deeply embedded and profound message in the film or are we just left to our devices to find one where none exists? It is hard to say. It is set in a Parasite-esque sprawling residence complete with all amentities where the parents have brainwashed their three children into confining them to the house. They go to great lengths to do the same, reinventing words and changing their meanings ("Zombie" is a small yellow flower, for example), faking the death of their imaginary brother by a evil creature called the "cat". It's a film that contains many explicit scenes of violence, gore, and blood - Martin, the boy gorging out the guts of a cat with gardener's scissors or the eldest smashing her mouth with a dumbell to get her dogtooth out - afterwards which she's told she would be able to venture out and face the challenges of the world outside. Not a lot seems to be happening in the film - these characters moving around in slow and calculated steps, the cameras held in static shots as if everybody is holding their breaths and its kind of ironic given the pristine environment they live in. But once we look deeper, we find darker things going on in the house. Themes of submission are generously explores throughout the film along with incest and homosexuality. The climax is open-ended as we find the eldest girl being able to identify the shroud of lies her parents have put up and escaping out in her father's car but we don't really find out what happens to her afterwards. The last shot is a long take of her father's backcabin. And that's pretty much all I wanna say about Dogtooth. Weird-ass Greek movie.
 
-(first watch: 26 November, 2022)    
+(first watch: 26 November, 2022)
 
-104. > **Pan's Labyrinth | Guillermo del Toro | 2006**   
+104. > **Pan's Labyrinth | Guillermo del Toro | 2006**
 
-Oh. My. God. _Pan's Labyrinth_ is a beautiful, chilling modern fairy tale story. But don't believe "fairy tale" means all unicorns and magic spells - although, Pan's Labyrinth doesn't lack in imagination - there are more twists and moments of heightened suspense than in any conventional flick. Beautifully shot, the lighting are amazing, the color palettes, and the cinematography. And of course, the CGI. A very Alice in Wonderful-like plot but nothing like it. It has ample gore and bloodshed and death and magic creatures and fairies and fauns. Incredible experience.      
+Oh. My. God. _Pan's Labyrinth_ is a beautiful, chilling modern fairy tale story. But don't believe "fairy tale" means all unicorns and magic spells - although, Pan's Labyrinth doesn't lack in imagination - there are more twists and moments of heightened suspense than in any conventional flick. Beautifully shot, the lighting are amazing, the color palettes, and the cinematography. And of course, the CGI. A very Alice in Wonderful-like plot but nothing like it. It has ample gore and bloodshed and death and magic creatures and fairies and fauns. Incredible experience.
 
-Set in the Spanish civil war, it follows a little girl who discovers she is a magical princess but must perform three tasks to prove her fairyhood. Instead of spoiling the plot for you, I'll just leave it for you to explore :)       
+Set in the Spanish civil war, it follows a little girl who discovers she is a magical princess but must perform three tasks to prove her fairyhood. Instead of spoiling the plot for you, I'll just leave it for you to explore :)
 
-(first watch: 27 November, 2022)    
+(first watch: 27 November, 2022)
 
-105. > **Investigation of a Citizen Above Suspicion | Elio Petri | 1970**   
+105. > **Investigation of a Citizen Above Suspicion | Elio Petri | 1970**
 
-_Investigation of a Citizen Above Suspicion_ begins with the murder of a beautiful woman, Augusta Terzi (Florinda Bolkan), with a severe rape-and-murder fetish by her police chief lover. Interestingly, the chief doesn't try to cover his tracks but instead place evidences so that the police can trace the murder to him. And yet, even more intriguingly, the police chooses to unsee the evidence and defer the investigation simply because the culprit is a man of power. Indeed, the chief exclaims (multiple times) &ndash; _"I represent power, Augusta!"_ The film questions state authority and machismo as the investigation unfolds against a youth-led communist uprising challenging the state dominance, which is most brilliantly represented by one of the most potent scenes &ndash; the interrogation of the plumber. One must notice the dialogues very carefully as they drip with irony and fear. It's one of the most riveting demonstrations of the power of state authority and a starking representation of the theme of the movie. Shot in intimate full face shots, it's upclose and personal. We can study each muscle twitch of the face. Fantastically executed. Perhaps, the single dialogue that summarizes the state's attitude is this: _"We must know everything. We must control everything."_ The movie is also the commentary on the psychological transition of a man who is given incredible power to exercise. He breaks the traffic light and gets away with it. Terzi exclaims, _"You can commit any crime you want"_ and we are left to ponder: Who will watch the watchmen?      
+_Investigation of a Citizen Above Suspicion_ begins with the murder of a beautiful woman, Augusta Terzi (Florinda Bolkan), with a severe rape-and-murder fetish by her police chief lover. Interestingly, the chief doesn't try to cover his tracks but instead place evidences so that the police can trace the murder to him. And yet, even more intriguingly, the police chooses to unsee the evidence and defer the investigation simply because the culprit is a man of power. Indeed, the chief exclaims (multiple times) &ndash; _"I represent power, Augusta!"_ The film questions state authority and machismo as the investigation unfolds against a youth-led communist uprising challenging the state dominance, which is most brilliantly represented by one of the most potent scenes &ndash; the interrogation of the plumber. One must notice the dialogues very carefully as they drip with irony and fear. It's one of the most riveting demonstrations of the power of state authority and a starking representation of the theme of the movie. Shot in intimate full face shots, it's upclose and personal. We can study each muscle twitch of the face. Fantastically executed. Perhaps, the single dialogue that summarizes the state's attitude is this: _"We must know everything. We must control everything."_ The movie is also the commentary on the psychological transition of a man who is given incredible power to exercise. He breaks the traffic light and gets away with it. Terzi exclaims, _"You can commit any crime you want"_ and we are left to ponder: Who will watch the watchmen?
 
-Coming to execution, _Investigation_ has some of the finest camerawork I have seen. Scene compositions are great, the camera movement graceful as they sway around a scene intriguing and creating suspense. I don't know much about Italian cinema (I'm reminded of _Life is Beautiful_) but I suppose this will be up there. Complementary and "humorous" sound track. Love the flashback sequences.   
+Coming to execution, _Investigation_ has some of the finest camerawork I have seen. Scene compositions are great, the camera movement graceful as they sway around a scene intriguing and creating suspense. I don't know much about Italian cinema (I'm reminded of _Life is Beautiful_) but I suppose this will be up there. Complementary and "humorous" sound track. Love the flashback sequences.
 
-(first watch: 28 November, 2022)    
+(first watch: 28 November, 2022)
 
-106. > **Once Upon A Time ... In Hollywood | Quentin Tarantino | 2019**    
+106. > **Once Upon A Time ... In Hollywood | Quentin Tarantino | 2019**
 
-_Once Upon A Time In Hollywood_ takes place in Hollywood in the 60s and tells the story of a fictional actor named Rick Dalton and his stuntman double, Cliff Booth. They happen to be neighbors to Roman Polanski and Shannon Tate (played by Margot Robbie) and end up getting engaged in a number of internal and external conflicts such as career issues, fight with the hippies, and so on.     
+_Once Upon A Time In Hollywood_ takes place in Hollywood in the 60s and tells the story of a fictional actor named Rick Dalton and his stuntman double, Cliff Booth. They happen to be neighbors to Roman Polanski and Shannon Tate (played by Margot Robbie) and end up getting engaged in a number of internal and external conflicts such as career issues, fight with the hippies, and so on.
 
-The movie is a portrayal of the bourgeois Hollywood circles and a social commentary on the good ol' have and have-nots. All filmed in classic Tarantino style. We have everything from feet to food to fight scenes with "Bruce Lee". Car drives form a large portion in the first half and peculiar hovering bird-eye view shots too. And then, of course, the finale and confrontation at Rick's house. And a special mention for Margot Robbie, oof :P!    
+The movie is a portrayal of the bourgeois Hollywood circles and a social commentary on the good ol' have and have-nots. All filmed in classic Tarantino style. We have everything from feet to food to fight scenes with "Bruce Lee". Car drives form a large portion in the first half and peculiar hovering bird-eye view shots too. And then, of course, the finale and confrontation at Rick's house. And a special mention for Margot Robbie, oof :P!
 
-I like how the film mingles the real life and the film life. Gave me a lot of Truffaut's _Day For Night_ vibes. All in all, a good watch for a lazy Saturday evening.    
+I like how the film mingles the real life and the film life. Gave me a lot of Truffaut's _Day For Night_ vibes. All in all, a good watch for a lazy Saturday evening.
 
-(first watch: 10 December, 2022)    
+(first watch: 10 December, 2022)
+
+107. > **Fallen Angels | Wong Kar-Wai | 1995**    
+
+In _Fallen Angels_, Wong Kar-Wai perfects and consolidates his unique style that he introduced in _Chungking Express_. Every shot is so dreamy and trippy from the steadicam camerawork (something taken by Gaspar Noe to the extreme) to jittery, grainy compositions with colors split midway. _Fallen Angels_ is among one of the most stylized films I have watched till date. A movie with a distinct taste and sophistication.   
+
+_Fallen Angels_ follows different individuals from different walks of lifes in Hong Kong and how their paths cross in serendipitous ways. It's a dreamy film and takes that premise forward. I loved the stop-motion bounty murder sequences (an exceptional such sequence is the Plutonium theft sequence in _The Man Who Stole the Sun_), the camera movements are humorous, perky, and....comical. It's delightful to hit play on any Wong Kar-Wai and let our minds drift into his world. Revisitable.    
+
+(first watch: 14 December, 2022)    
 
 <hr />
 
@@ -823,7 +831,7 @@ I would love to hear your thoughts, ideas or suggestions to add to this list! Or
 [13]: https://en.wikipedia.org/wiki/Satoshi_Kon:_The_Illusionist
 [14]: /post/movie-playtime-1967/
 [15]: https://www.imdb.com/title/tt0053198/
-[16]: /post/the-french-dispatch-2021/ 
+[16]: /post/the-french-dispatch-2021/
 [17]: /post/movie-psycho-1960
 [18]: /post/movie-a-clockwork-orange-1971/
 [19]: https://www.youtube.com/@TheKinoCorner
