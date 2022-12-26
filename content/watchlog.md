@@ -807,6 +807,37 @@ _Fallen Angels_ follows different individuals from different walks of lifes in H
 
 (first watch: 14 December, 2022)    
 
+108. > **Taxi Driver | Martin Scorsese | 1976**    
+
+Scorsese's _Taxi Driver_ has been lauded and often referenced as an effective representation of ideal masculinity and its relation to society and I resonate with that viewpoint somehow. There is a lot going on in this movie and we can go on peeling the layers off and still find something interesting. There's the character arc of our protagonist on one hand and the social commentary on 70s New York lowlife. There is exploration of themes of loneliness and there's a subtle satire on political institutions.   
+
+We follow Travis Bickle, a peculiar ex-Marine veteran who happen to find himself in the wrong crowds in 70s downtown New York. He despises what he sees, what goes around him, and tries to accept his "job" as a menial taxi driver. He says,
+> "All the animals come out at night.  
+Whores, skunk-pussies, buggers,
+queens, fairies, dopers, junkies.  
+Sick, venal.   
+Someday a real rain'll come and
+wash all this scum off the streets."
+
+He's kind of weird. His behaviours are strange. He reaches out to talk to peer drivers but is unable to come up with words. Instead we get that heart-stopping De Niro loopsided smile. _dies from cutness_.  Is he shy? Is he awkward? Is he an outcast? We don't know. A habitual insomniac, he drives through the city at night and watches all these people through his glass cube. He's very observant but never says anything. Never "interrupts". Does he not consider himself to be eligible to bring about changes to the system? Does he have inferiority complex? Or is a mix of all these? Again, we don't know and that intrigue makes his character engaging and amicable.   
+
+He tries to find love but fails. The woman (Betsy played by Cybill Shepherd) simply tells him, "We're just different." _We're just different_. At one point, Travis decides to reform lest he goes mad from the monotony of a driver's life. He witnesses all the "scum" and the "crime" as he puts it and just feels it in his bones to straigthen a few records. And that he does. Helping a young girl (Iris played by Jodie Foster) out of the claws of prostitution by shooting the pimp, taking a bullet, and what not. A classic Scorcese crime scene. Watch out for that sequence OMG.    
+
+Betsy used the lyrics of a 71' country song by Krist Kristoferson to describe him,   
+
+> "He's a prophet, he's a pusher   
+He's a pilgrim and a preacher, and a problem when he's stoned    
+He's a walkin' contradiction,...."
+
+
+*A walkin' contradiction*; yes, that. She does come back again only to find an insurmountable abyss between them. After a formal conversation, she leaves him wanting to say more but being unable to. And Travis simply drives away into the lights and dark of New York, alone. Nothing changed after all.   
+
+Why the appeal? Quoting Roger Ebert's 2004 review,   
+
+> "This utter aloneness is at the center of "Taxi Driver," one of the best and most powerful of all films, and perhaps it is why so many people connect with it even though Travis Bickle would seem to be the most alienating of movie heroes. We have all felt as alone as Travis. Most of us are better at dealing with it."
+
+(first watch: 26 December, 2022)    
+
 <hr />
 
 ## Closing thoughts
